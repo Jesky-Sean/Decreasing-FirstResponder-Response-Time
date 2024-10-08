@@ -8,7 +8,7 @@ here i propose a valid and effective means of decreasing responce times for firs
 
 ![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
 ![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)
-*these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, or simply attached underneath existing traffic lights and enabled by existing power source. 
+*these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, to merge into a new lane or come to a stop at a intersection as required based off first responders requirements based off their route, or simply attached underneath existing traffic lights and enabled by existing power source. 
 -
 granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
 
