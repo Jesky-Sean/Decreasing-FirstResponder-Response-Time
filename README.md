@@ -1,24 +1,16 @@
-Draft - pre-release white paper. i came up with this for someone, but ive found out that person is "unintrested in me and ..." this idea was dedicated for them until someone got involved in my life and made shit up about me or something most likley without context or truth of what i was going through at home, someone older was pretending to be my friend to learn about her then did this shit and used this info i told her about her to become her friend and that is my best guess. (read last paragraph) i wish i could just undo what i did because im still in love but now when i work on this idea its with heartbreak. 
+Draft - pre-release white paper. i came up with this for someone (A Best Solution by sean m jesky, as a word document), but ive found out that person is "unintrested in me and ..." this idea was dedicated for them until someone got involved in my life and made shit up about me or something most likley without context or truth of what i was going through at home, someone older was pretending to be my friend to learn about her then did this shit and used this info i told her about her to become her friend and that is my best guess. (read last paragraph) i wish i could just undo what i did because im still in love but now when i work on this idea its with heartbreak. 
 
 ![image](https://github.com/user-attachments/assets/a15e7402-89a0-4f2d-b74b-a780d06bb075)
 *this image shows basic rules of how it would work in action on a whiteboard (error, farthest set of lights north of second set of vertical lane lines from the left, should be placed in the lane directly next to it)
+-
 
-here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if ar all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference .
+here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if ar all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
 
 ![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
 ![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)
-
 *these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, or simply attached underneath existing traffic lights and enabled by existing power source. 
-
-
-needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start. but the AI says its pretty good right now, so ill take its pointers and write a few more things.
-
+-
 granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
-
-still working on bits here and there for the paper but people are vultures sometimes, and i really want something more than ive ever wanted before in my life, so had to take this approach and publish as fast as i could in any way i could - now once complete or to the best of my ability till i can think again in good conditions, ill send it off to everyone everywhere in this country.
- 
-i should just post all my notes on this that i did as well, but in my current living conditions im suprised i did this much or could even think of this basic idea.*
-
 
 suggestions:
 
