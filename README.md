@@ -2,6 +2,9 @@ Draft - pre-release white paper. i came up with this for someone, but ive found 
 
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if ar all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference .
 
+![image](https://github.com/user-attachments/assets/a15e7402-89a0-4f2d-b74b-a780d06bb075)
+*this image shows basic rules of how it would work in action on a whiteboard (error, farthest set of lights north of second set of vertical lane lines from the left, should be placed in the lane directly next to it)
+
 needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start. but the AI says its pretty good right now, so ill take its pointers and write a few more things.
 
 granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
