@@ -15,7 +15,7 @@ granted, this system of emergency lights attached to traffic light posts, or oth
 suggestions:
 
   mark streets with this system in place, so when people turn onto these streets they cant say they were surprised or say they had no idea, etc. 
-  late merging is an issue i can foresee being an issue as well, waiting till the last moment to merge, when this needs to happen ASAP.  placing 
+  late merging is an issue i can foresee being an issue as well, waiting till the last moment to merge, when this needs to happen ASAP.  placing, another issue is cars that pull into multipul lanes, like large trucks or even regular cars, when trying to get into a lane without the room for such a turn-in. 
   in bottle necks that hinder response times like busy streets, popular areas, etc. the places that cause the most issues. 
 
 maybe TODO's:
