@@ -1,5 +1,3 @@
-as soon as i start my work trying to help others and live my life. fuck everyone. i have no one and i guess its a good thing everyone hates me and no one has ever stoped them. fml. and fuck roomers and gossip, every time someone interfears or otherwise sabatages my life because they want me and i dont want them or something along those dumb and stupid lines.  
-
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if ar all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference .
 
 needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start. but the AI says its pretty good right now, so ill take its pointers and write a few more things.
@@ -66,16 +64,17 @@ my nighbors tried to stop me from being who i was, they tried to stop me from he
    (never for VIPs please!
    
    i mean, just me so i can see how it works....)
+
+
+
+------
+as soon as i start my work trying to help others and live my life. fuck everyone. i have no one and i guess its a good thing everyone hates me and no one has ever stoped them (neighbors and maintence workers engaged in hate crimes against me). fml. and sidenote - fuck roomers and gossip, every time someone interfears or otherwise sabatages my life because they want me and i dont want them or something along those dumb and stupid lines. if anyone asks me a question i will answer it truthfully, but no one ever asks, execpt for one person ("dont you ever get board just sitting here doing nothing") and that was the only time, every other time no one asks me anything but ill hear something and be like wtf who came up with that!?!?!? and it hurts me that it gets belived. when im in pain i will write a bunch of shit and its a outlet, if you were being affected by hate crimes that caused you severe pain and you are someone like me, who cant hurt anyone due to personal beleifs, then youd have to find a way to express your fustration, and my way is to write - it means nothing but it helps me live.
+---
    
-   
 
    
 
 
 
 
-        
-![image](https://github.com/user-attachments/assets/ecbe91c8-098e-4d47-ab23-4da5e4f6a696)
-
-
-      selling my first one for 2050, or 2,500 framed. (its 1/5 prints in a set) just for the first batch i print.  
+        print.  
