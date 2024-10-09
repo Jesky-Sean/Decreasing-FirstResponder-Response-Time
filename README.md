@@ -30,6 +30,10 @@ Draft - pre-release white paper. i came up with this for someone, sorry again: [
         achevie it if we try, together.   
 
 
+working on the flowchart right now, havent done one in a while so.. hopfully this goes better then this second later on in.
+![image](https://github.com/user-attachments/assets/f7f3334d-723e-47cb-b098-d28ef55b418e)
+
+
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if at all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
 
 ![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
