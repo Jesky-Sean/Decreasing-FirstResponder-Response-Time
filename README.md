@@ -19,9 +19,10 @@ Draft - pre-release white paper. i came up with this for someone: [https://githu
     i thought she was the one in all regards. i cant even explain it even now. 
 
 
-  ![image](https://github.com/user-attachments/assets/607071b9-c6ac-4db8-abc9-1b2fd195f45f)
-  
-    this image shows basic rules of how it would work in action on a whiteboard. (corrected, - and added extra notes)
+ 
+  ![image](https://github.com/user-attachments/assets/b6074084-289c-4fa0-877e-093b6b0cbef9)
+
+    this image shows basic rules of how it would work in action on a whiteboard. (corrected, again, again, again - and added extra notes and better look)
 
 
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if ar all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
