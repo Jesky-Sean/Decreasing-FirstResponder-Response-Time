@@ -1,22 +1,5 @@
-Draft - pre-release white paper. i came up with this for someone: [https://github.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/blob/main/White%20Paper%20-%20A%20Best%20Solution_R.docx](https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/White%20Paper%20-%20A%20Best%20Solution_R.docx) 
+Draft - pre-release white paper. i came up with this for someone (read bottom): [https://github.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/blob/main/White%20Paper%20-%20A%20Best%20Solution_R.docx](https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/White%20Paper%20-%20A%20Best%20Solution_R.docx) 
     (A Best Solution. by, sean m jesky, as a word document). 
-    
-    but ive found out that person is "unintrested in me" and i some
-    rather hurtful other things (i dont belive it because i didnt hear
-    it from her, but its my fault i used what i thought what was
-    her friends giving me hints to what she was thinking, omg was i dumb.
-    im dumb... thought id hear from them eventually, but now i guess that
-    was why :( this idea was dedicated for them -and created for them and us
-    and the future ithought at the time i created it.
-    now it feels like im looked at in disgust like i did something
-    horrible and no one will tell me. 
-    
-    *(read last paragraph) i wish i could just undo what i did because 
-    im still in love but now when i work on this idea its with heartbreak,
-    no answers and im hurting cant eat, sleep, or even think because
-    i thought she was the one in all regards. i cant even explain it even now. 
-
-
  
   ![image](https://github.com/user-attachments/assets/b6074084-289c-4fa0-877e-093b6b0cbef9)
 
@@ -95,10 +78,23 @@ my nighbors tried to stop me from being who i was, they tried to stop me from he
 
 
 
-    as soon as i start my work trying to help others and live my life.
-    fuck everyone. i have no one and i guess its a good thing everyone
-    hates me and no one has ever stoped them (neighbors and maintence
-    workers engaged in hate crimes against me). fml. 
+because i have no one to
+talk to i write. sorry: 
+
+    *but ive found out that person is "unintrested in me" and i some
+    rather hurtful other things (i dont belive it because i didnt hear
+    it from her, but its my fault i used what i thought what was
+    her friends giving me hints to what she was thinking, omg was i dumb.
+    im dumb... thought id hear from them eventually, but now i guess that
+    was why :( this idea was dedicated for them -and created for them and us
+    and the future ithought at the time i created it.
+    now it feels like im looked at in disgust like i did something
+    horrible and no one will tell me. 
+    
+    *(read last paragraph) i wish i could just undo what i did because 
+    im still in love but now when i work on this idea its with heartbreak,
+    no answers and im hurting cant eat, sleep, or even think because
+    i thought she was the one in all regards. i cant even explain it even now.. 
     
     sidenote - fuck roomers and gossip, every time someone interfears 
     or otherwise sabatages my life not her one friend with the coffee
@@ -140,7 +136,6 @@ my nighbors tried to stop me from being who i was, they tried to stop me from he
     protect others, there is even proof of that when i was in a fight
     with my dog against two vicious pits who wanted to tear him open.
     i dont and never will give up to help others. 
-
 
     i theorize; someone got involved in my life and made shit up about 
     me or something most likley without context or truth of what i was
