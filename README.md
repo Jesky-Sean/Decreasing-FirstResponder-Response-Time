@@ -1,7 +1,7 @@
 Draft - pre-release white paper. i came up with this for someone, sorry again: [https://github.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/blob/main/White%20Paper%20-%20A%20Best%20Solution_R.docx](https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/White%20Paper%20-%20A%20Best%20Solution_R.docx) 
     (A Best Solution. by, sean m jesky, as a word document). 
  
-![image](https://github.com/user-attachments/assets/a6e7ee77-5415-4bee-98b8-0c9d6862516e)
+![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
     this image shows basic rules of how it would work in action on a whiteboard. (corrected, again, again, again - and added extra notes and better look)
 
     Rule #0: first responder lights turn off after first responder(s) have passed
