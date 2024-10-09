@@ -1,8 +1,14 @@
-Draft - pre-release white paper. i came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
+![image](https://github.com/user-attachments/assets/78f754e1-0028-44d5-b391-44fba11cc9d1)
+*my logo*
+
+My Draft - and pre-release white paper.
+-
+
+i came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
     (A Best Solution. by, sean m jesky, as a word document). 
  
 ![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
-    this image shows basic rules of how it would work in action on a whiteboard. (corrected, again, again, again - and added extra notes and better look)
+    *this image shows basic rules of how it would work in action on a whiteboard. (corrected, again, again, again - and added extra notes and better look)*
 
     Rule #0: The FRLS (first responder lighting system) turns off after first
         responder(s) have passed the intersection(s) along their route(s).
@@ -28,10 +34,9 @@ Draft - pre-release white paper. i came up with this for someone, sorry again, s
         of time. we, the people can all do something great for us all at no cost to 
         us all, together as a country. we can be a Utopiatarian society. we can
         achevie it if we try, together.   
-
-![image](https://github.com/user-attachments/assets/953d6ad2-d085-40c3-80ae-cffa21180216)
-finished flowchart... it think..
-its easier to improve upon your provious work, than it is to improve upon nothing, its why ill put anything down even if its bad because that can be made better than, nothing created yet.  .. idk im trying to show how what i do is a purely iterative process that anyone could do.
+![image](https://github.com/user-attachments/assets/6d998793-e94c-4be6-8231-cf1faf58177f)
+*finished flowchart... it think..
+its easier to improve upon your provious work, than it is to improve upon nothing, its why ill put anything down even if its bad because that can be made better than, nothing created yet.  .. idk im trying to show how what i do is a purely iterative process that anyone could do.*
 
 or if rule number two is an issue:
 If the FRLs is on, don’t use that lane, if it’s on, move from that lane, if first responders are stuck behind a set of vehicles, disable FRLS until FR has passed, the signal from that first responders ID will tell the system to turn back on behind them if rule number two is applied at that intersection, the vehicles in front of the FR must move until they are back into a inactive FRLS lane after the turn to allow the FR around them and to prevent an accident. The FRLS turned off for rule #2 cannot be a lane which leads into an active FRLS lane. 
@@ -42,12 +47,7 @@ here i propose a valid and effective means of decreasing responce times for firs
 ![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
 ![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)
    
-    these two images show concept art of how it could be implemented if we
-    redesgined traffic lights, and we could just embedd first responder
-    lights within traffic lights to enable this effect required to alert drivers,
-    to merge into a new lane or come to a stop at a intersection as required 
-    based off first responders requirements based off their route, or simply
-    attached underneath existing traffic lights and enabled by existing power source. 
+*these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, to merge into a new lane or come to a stop at a intersection as required based off first responders requirements based off their route, or simply attached underneath existing traffic lights and enabled by existing power source.* 
 
 granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
 
