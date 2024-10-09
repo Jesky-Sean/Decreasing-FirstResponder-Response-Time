@@ -18,8 +18,9 @@ Draft - pre-release white paper. i came up with this for someone: [https://githu
     no answers and im hurting cant eat, sleep, or even think because
     i thought she was the one in all regards. i cant even explain it even now. 
 
-![image](https://github.com/user-attachments/assets/d543ec44-0834-473e-b70d-878f81dc2081)
-    
+
+  ![image](https://github.com/user-attachments/assets/607071b9-c6ac-4db8-abc9-1b2fd195f45f)
+  
     this image shows basic rules of how it would work in action on a whiteboard. (corrected, - and added extra notes)
 
 
