@@ -29,9 +29,10 @@ Draft - pre-release white paper. i came up with this for someone, sorry again: [
         us all, together as a country. we can be a Utopiatarian society. we can
         achevie it if we try, together.   
 
+![image](https://github.com/user-attachments/assets/d26b5ebf-4de1-4964-896c-6384cd074729)
+its easier to improve upon your provious work, than it is to improve upon nothing, its why ill put anything down even if its bad because that can be made better than, nothing created yet.  
 
-working on the flowchart right now, havent done one in a while so.. hopfully this goes better then this second later on in. i mean wow is this bad, but i know what to do to make it better.. idk im trying to show how what i do is a purely iterative process that anyone could do. 
-![image](https://github.com/user-attachments/assets/f7f3334d-723e-47cb-b098-d28ef55b418e)
+*working on the flowchart right now, havent done one in a while so.. hopfully this goes better then this second later on in. i mean wow is this bad, but i know what to do to make it better.. idk im trying to show how what i do is a purely iterative process that anyone could do. 
 
 
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if at all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
