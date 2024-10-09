@@ -7,7 +7,9 @@ Draft - pre-release white paper. i came up with this for someone: [https://githu
     her friends giving me hints to what she was thinking, omg was i dumb.
     im dumb... thought id hear from them eventually, but now i guess that
     was why :( this idea was dedicated for them -and created for them and us
-    and the future ithought at the time i created it. 
+    and the future ithought at the time i created it.
+    now it feels like im looked at in disgust like i did something
+    horrible and no one will tell me. 
     
     *(read last paragraph) i wish i could just undo what i did because 
     im still in love but now when i work on this idea its with heartbreak,
