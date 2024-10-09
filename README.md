@@ -21,7 +21,11 @@ Draft - pre-release white paper. i came up with this for someone, sorry again: [
 
     RESULT: A temporay dynamic express lane for first responders to quickly arrive at
         their destination as to reduce casualitys that a reduction in time can
-        acheive as the studies suggest. 
+        acheive, as the studies suggest is possible to save over 10,000 lives a
+        year if we just reduce the responce time by one minute. we can all be apart
+        of something great and there is nothing we have to do but move left or right
+        when we drive, and only for a few moments of time. we can so something great
+        together as a country. 
 
 
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if at all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
