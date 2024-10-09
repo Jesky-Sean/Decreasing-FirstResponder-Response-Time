@@ -33,6 +33,9 @@ Draft - pre-release white paper. i came up with this for someone, sorry again: (
 finished flowchart... it think..
 its easier to improve upon your provious work, than it is to improve upon nothing, its why ill put anything down even if its bad because that can be made better than, nothing created yet.  .. idk im trying to show how what i do is a purely iterative process that anyone could do.
 
+or if rule number two is an issue:
+If the FRLs is on, don’t use that lane, if it’s on, move from that lane, if first responders are stuck behind a set of vehicles, disable FRLS until FR has passed, the signal from that first responders ID will tell the system to turn back on behind them if rule number two is applied at that intersection, the vehicles in front of the FR must move until they are back into a inactive FRLS lane after the turn to allow the FR around them and to prevent an accident. The FRLS turned off for rule #2 cannot be a lane which leads into an active FRLS lane. 
+
 
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if at all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
 
