@@ -29,7 +29,7 @@ Draft - pre-release white paper. i came up with this for someone, sorry again: [
         us all, together as a country. we can be a Utopiatarian society. we can
         achevie it if we try, together.   
 
-![image](https://github.com/user-attachments/assets/d26b5ebf-4de1-4964-896c-6384cd074729)
+![image](https://github.com/user-attachments/assets/1c8e8a8c-7b60-4146-9df7-e0a354f08cff)
 its easier to improve upon your provious work, than it is to improve upon nothing, its why ill put anything down even if its bad because that can be made better than, nothing created yet.  
 
 *working on the flowchart right now, havent done one in a while so.. hopfully this goes better then this second later on in. i mean wow is this bad, but i know what to do to make it better.. idk im trying to show how what i do is a purely iterative process that anyone could do. 
