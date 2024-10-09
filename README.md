@@ -30,7 +30,7 @@ Draft - pre-release white paper. i came up with this for someone, sorry again: [
         achevie it if we try, together.   
 
 
-working on the flowchart right now, havent done one in a while so.. hopfully this goes better then this second later on in.
+working on the flowchart right now, havent done one in a while so.. hopfully this goes better then this second later on in. i mean wow is this bad, but i know what to do to make it better.. idk im trying to show how what i do is a purely iterative process that anyone could do. 
 ![image](https://github.com/user-attachments/assets/f7f3334d-723e-47cb-b098-d28ef55b418e)
 
 
