@@ -1,7 +1,18 @@
 Draft - pre-release white paper. i came up with this for someone: [https://github.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/blob/main/White%20Paper%20-%20A%20Best%20Solution_R.docx](https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/White%20Paper%20-%20A%20Best%20Solution_R.docx) 
     (A Best Solution. by, sean m jesky, as a word document). 
     
-    but ive found out that person is "unintrested in me, and some rather hurtful other things (i dont belive it because i didnt hear it from her, but its my fault i used what i thought what was her friends giving me hints to what she was thinking im dumb..."  thought id hear from them eventually, but now i guess that was why :( this idea was dedicated for them - (read last paragraph) i wish i could just undo what i did because im still in love but now when i work on this idea its with heartbreak, no answers and im hurting cant eat, sleep, or even think because i thought she was the one in all regards. i cant even explain it even now. 
+    but ive found out that person is "unintrested in me" and i some
+    rather hurtful other things (i dont belive it because i didnt hear
+    it from her, but its my fault i used what i thought what was
+    her friends giving me hints to what she was thinking, omg was i dumb.
+    im dumb... thought id hear from them eventually, but now i guess that
+    was why :( this idea was dedicated for them -and created for them and us
+    and the future ithought at the time i created it. 
+    
+    *(read last paragraph) i wish i could just undo what i did because 
+    im still in love but now when i work on this idea its with heartbreak,
+    no answers and im hurting cant eat, sleep, or even think because
+    i thought she was the one in all regards. i cant even explain it even now. 
 
 ![image](https://github.com/user-attachments/assets/a15e7402-89a0-4f2d-b74b-a780d06bb075)
 *this image shows basic rules of how it would work in action on a whiteboard (lights across the street of the median, those sets of lights should belong for the lanes left of the median, not for the lanes it currently represents, will fix when i can)
@@ -73,21 +84,82 @@ my nighbors tried to stop me from being who i was, they tried to stop me from he
 
 
 
-    as soon as i start my work trying to help others and live my life. fuck everyone. i have no one and i guess its a good thing everyone hates me and no one has ever stoped them (neighbors and maintence workers engaged in hate crimes against me). fml. 
-    sidenote - fuck roomers and gossip, every time someone interfears or otherwise sabatages my life (not her one friend with the coffee test, and orher questions, shes legit looking out for the women i fell in love with and i know she cares about her wellbeing and happynes - i would bet my life on that truth.) because they want me and i dont want them or something along those dumb and stupid lines. if anyone asks me a question i will answer it truthfully, but no one ever asks, execpt for one person ("dont you ever get board just sitting here doing nothing") and that was the only time, every other time no one asks me anything
-    ill hear something and be like wtf who came up with that!?!?!? and it hurts me that it gets belived. 
-    in addition when im in pain i will write a bunch of shit (bad stuff, really bad stuff that in the moment you have no control of what you say, again unless youve been tortured for as long as i have, your hurting me by making stuff up just as much as my torturers, fuck you - and its a outlet, a known and effective coping mech. and it works.  
-    if you were being affected by hate crimes that caused you severe pain and you are someone like me, who cant hurt anyone due to personal beleifs, then youd have to find a way to express your fustration, and my way is to write - 
-
-    it means nothing but it helps me live another day when i write nonsence (word vomit) unless you ask me about it you wont understand it. 
-    torture for over 1 year in capativity caused me to have to write to survive, then its used against me. 
-    out of context of what im experiencing from hate crime. intentionally misrepresenting who i am based off what helped me survive torture. duck off. 
-
-
-    i theorize; someone got involved in my life and made shit up about me or something most likley without context or truth of what i was going through at home,
-    someone older was pretending to be my friend to learn about her, then did this shit and used this info i told her about her to become her friend and that is my best guess.
+    as soon as i start my work trying to help others and live my life.
+    fuck everyone. i have no one and i guess its a good thing everyone
+    hates me and no one has ever stoped them (neighbors and maintence
+    workers engaged in hate crimes against me). fml. 
     
-    i know she didnt report me because she would have just said it as it was, shes not thay type of girl and no one can tell me differet, shes a good women who didnt do anything wrong, i did and i apperently always will. 
+    sidenote - fuck roomers and gossip, every time someone interfears 
+    or otherwise sabatages my life not her one friend with the coffee
+    test, and orher questions, shes legit looking out for the women i
+    fell in love with and i know she cares about her wellbeing and
+    happynes - i would bet my life on that truth.) she was my one true
+    love who inspired this and my prints, and ill never get another chance now. 
+    
+    if anyone asks me a question i will answer it truthfully, 
+    but no one ever asks, execpt for one person ("dont you ever get 
+    board just sitting here doing nothing") and that was the only time, 
+    every other time no one asks me anything
+    ill hear something and be like wtf who came up with that!?!?!? 
+    and it hurts me that it gets belived. 
+    in addition when im in pain i will write a bunch of shit (bad stuff, 
+    really bad stuff that in the moment you have no control of what you say,
+    again unless youve been tortured for as long as i have, your hurting
+    me by making stuff up just as much as my torturers, fuck you - and its
+    a outlet, a known and effective coping mech. and it works. and saved my life
+    along with taylor swift songs and other happy music like motly crue,
+    greenday and and and.  
+    
+    if you were being affected by hate crimes that caused you severe pain and you 
+    are someone like me, who cant hurt anyone due to personal beleifs, 
+    then youd have to find a way to express your fustration,
+    and my way is to write - 
+
+    it means nothing but it helps me live another day when i write nonsence 
+    (word vomit) unless you ask me about it you wont understand it. but,
+    using what i write! out of context of what im experiencing from hate crime.
+    intentionally misrepresenting who i am based off what helped me 
+    survive torture. duck off.
+    torture for over 1 year in capativity caused me to have to write to survive,
+    then its used against me, as it has many times before by my torturers 
+    now a jelly older women ive been told. now im scared for her if they 
+    hang out because idk if she knows what think i know. 
+    why wont anyone just take the time to understand me. 
+    i never lie if im asked a direct question and id give my life to
+    protect others, there is even proof of that when i was in a fight
+    with my dog against two vicious pits who wanted to tear him open.
+    i dont and never will give up to help others. 
+
+
+    i theorize; someone got involved in my life and made shit up about 
+    me or something most likley without context or truth of what i was
+    going through at home,
+    in addition, someone older was pretending to be my friend to learn 
+    about her,to get to me (sounds fucking crazy unless you know what i know)
+    then did this shit and used this info i told her about her to become
+    her friend and that is my best guess. in additon, i stayed the night
+    for a few days, and after she tried to make a few moves on me and i dint
+    want it, she said "i know your going to treat [] like a princess" then a
+    few days later i hear shes saying im not able to live on my own or take
+    care of my self. fuck you. i wake up at 3am, make my bed, twke a shower,
+    work out and then study and i did that nonstop for years, wtf is wrong
+    with people.
+    Then she gives me a hug and she seriously presses herself against me,
+    you have no clue what ive done or howive lived and what i went through,
+    and you are a manipulator of the highest cal. and, three days
+    after the attempted kiss oe so, she knew every detail and used that
+    to try and get me up. whos playing me and why? ill only ever want
+    one women and its no one else. but bescauss she knew all these little
+    details i thought my women said somethung and it waz another test
+    because how much she knew, and what to say. 
+    
+    i know the women of my dreams didnt report me because she would have
+    just said it as it was,  shes not thay type of girl (as you all called her) 
+    shes a women, and no one can tell me differet, shes a good women who
+    didnt do anything wrong, and you all interfeared with her and me and
+    made it seem like shes incapable or dumb. no you all are dumb,
+    shes brilliant and will surpas me anyday one day, i did and i apperently
+    always will be the problem, and ill never escape and have a real life. 
 
    
 
