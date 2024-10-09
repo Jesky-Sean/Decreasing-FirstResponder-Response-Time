@@ -1,4 +1,4 @@
-Draft - pre-release white paper. i came up with this for someone (read bottom): [https://github.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/blob/main/White%20Paper%20-%20A%20Best%20Solution_R.docx](https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/White%20Paper%20-%20A%20Best%20Solution_R.docx) 
+Draft - pre-release white paper. i came up with this for (sorry, i wish someone just took the time to get to know me instead of listing to others and just really get to know me, but so many people want to be involved in my life so often... sorry: [https://github.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/blob/main/White%20Paper%20-%20A%20Best%20Solution_R.docx](https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/White%20Paper%20-%20A%20Best%20Solution_R.docx) 
     (A Best Solution. by, sean m jesky, as a word document). 
  
   ![image](https://github.com/user-attachments/assets/b6074084-289c-4fa0-877e-093b6b0cbef9)
