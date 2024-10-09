@@ -73,12 +73,21 @@ my nighbors tried to stop me from being who i was, they tried to stop me from he
 
 
 
-    as soon as i start my work trying to help others and live my life. fuck everyone. i have no one and i guess its a good thing everyone hates me and no one has ever stoped them (neighbors and maintence workers engaged in hate crimes against me). fml. and sidenote - fuck roomers and gossip, every time someone interfears or otherwise sabatages my life because they want me and i dont want them or something along those dumb and stupid lines. if anyone asks me a question i will answer it truthfully, but no one ever asks, execpt for one person ("dont you ever get board just sitting here doing nothing") and that was the only time, every other time no one asks me anything but ill hear something and be like wtf who came up with that!?!?!? and it hurts me that it gets belived. when im in pain i will write a bunch of shit and its a outlet, if you were being affected by hate crimes that caused you severe pain and you are someone like me, who cant hurt anyone due to personal beleifs, then youd have to find a way to express your fustration, and my way is to write - 
+    as soon as i start my work trying to help others and live my life. fuck everyone. i have no one and i guess its a good thing everyone hates me and no one has ever stoped them (neighbors and maintence workers engaged in hate crimes against me). fml. 
+    sidenote - fuck roomers and gossip, every time someone interfears or otherwise sabatages my life (not her one friend with the coffee test, and orher questions, shes legit looking out for the women i fell in love with and i know she cares about her wellbeing and happynes - i would bet my life on that truth.) because they want me and i dont want them or something along those dumb and stupid lines. if anyone asks me a question i will answer it truthfully, but no one ever asks, execpt for one person ("dont you ever get board just sitting here doing nothing") and that was the only time, every other time no one asks me anything
+    ill hear something and be like wtf who came up with that!?!?!? and it hurts me that it gets belived. 
+    in addition when im in pain i will write a bunch of shit (bad stuff, really bad stuff that in the moment you have no control of what you say, again unless youve been tortured for as long as i have, your hurting me by making stuff up just as much as my torturers, fuck you - and its a outlet, a known and effective coping mech. and it works.  
+    if you were being affected by hate crimes that caused you severe pain and you are someone like me, who cant hurt anyone due to personal beleifs, then youd have to find a way to express your fustration, and my way is to write - 
 
-    it means nothing but it helps me live another day when i write nonsence (word vomit) unless you ask me about it you wont understand it. torture for over 1 year in capativity caused me to have to write to survive, then its used against me. out of context of what im experiencing from hate crime. intentionally misrepresenting who i am based off what helped me survive torture. duck off. 
+    it means nothing but it helps me live another day when i write nonsence (word vomit) unless you ask me about it you wont understand it. 
+    torture for over 1 year in capativity caused me to have to write to survive, then its used against me. 
+    out of context of what im experiencing from hate crime. intentionally misrepresenting who i am based off what helped me survive torture. duck off. 
 
 
-    i theorize; someone got involved in my life and made shit up about me or something most likley without context or truth of what i was going through at home, someone older was pretending to be my friend to learn about her then did this shit and used this info i told her about her to become her friend and that is my best guess. i know she didnt report me because she would have just said it as it was, shes not thay type of girl and no one can tell me differet. 
+    i theorize; someone got involved in my life and made shit up about me or something most likley without context or truth of what i was going through at home,
+    someone older was pretending to be my friend to learn about her, then did this shit and used this info i told her about her to become her friend and that is my best guess.
+    
+    i know she didnt report me because she would have just said it as it was, shes not thay type of girl and no one can tell me differet, shes a good women who didnt do anything wrong, i did and i apperently always will. 
 
    
 
