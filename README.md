@@ -1,10 +1,6 @@
-![image](https://github.com/user-attachments/assets/78f754e1-0028-44d5-b391-44fba11cc9d1)
-*my logo*
-
 My Draft - and pre-release white paper.
 -
-
-i came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
+I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
     (A Best Solution. by, sean m jesky, as a word document). 
  
 ![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
@@ -110,8 +106,6 @@ my nighbors tried to stop me from being who i was, they tried to stop me from he
    
 
    
-
-
-
-
-        print.  
+![image](https://github.com/user-attachments/assets/78f754e1-0028-44d5-b391-44fba11cc9d1)
+*my personal logo*
+  
