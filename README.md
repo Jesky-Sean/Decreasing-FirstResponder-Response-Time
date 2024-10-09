@@ -1,4 +1,4 @@
-fucking hate crimes begin again now im working on this again, fuck everyone.  i hope the world enjoys my work because i wont be here, these people(the landlords hategroup) have effectively killed me. 
+fucking hate crimes begin again now im working on this again, fuck everyone.  i hope the world enjoys my work because i wont be here, these people(the landlords hategroup) have effectively killed me. no escape. never had a chance did I. too many people working against me and i as always have no one by my side to get my back like ive always had everyone elses. 
 
 Draft - pre-release white paper. i came up with this for someone: [https://github.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/blob/main/White%20Paper%20-%20A%20Best%20Solution_R.docx](https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/White%20Paper%20-%20A%20Best%20Solution_R.docx) 
     (A Best Solution. by, sean m jesky, as a word document). 
