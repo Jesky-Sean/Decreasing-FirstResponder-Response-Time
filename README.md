@@ -5,14 +5,21 @@ Draft - pre-release white paper. i came up with this for someone, sorry again: [
     this image shows basic rules of how it would work in action on a whiteboard. (corrected, again, again, again - and added extra notes and better look)
 
     Rule #0: first responder lights turn off after first responder(s) have passed
-        intersection(s) along their route.
-    Rule #1: when active, and the first responder traffic lighting system is on
-        civilian drivers merge into either inactive lane.
+        the intersection(s) along their route(s).
+        
+    Rule #1: when active, and the first responder traffic lighting system is on. 
+        civilian drivers must merge into any inactive lane.
+        
     Rule #2: when all lights are active, all cars within those lanes must remain where
-       they are and not move until rule #0 becomes true, at which point resume 
-       with regular traffic light system rules. 
+       they are, and not move until rule #0 becomes true, at which point resume 
+       with regular traffic light system rules, as they normally would.
+       
     Rule #3: lighting system stays active until one intersection after the first
        responders destination. 
+
+    RESULT: A temporay dynamic express lane for first responders to quickly arrive at
+        their destination as to reduce casualitys that a reduction in time can
+        acheive as the studies suggest. 
 
 
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if ar all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
