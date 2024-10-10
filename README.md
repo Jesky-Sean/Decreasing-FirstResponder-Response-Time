@@ -9,7 +9,15 @@ I came up with this for someone, sorry again, seriously, i thought id impress he
 -----
 -----
 
-here i, Sean M Jesky Propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 to 45,000 a year (if we can decreece Responce Time by just 3 minutes on average - without hindering traffic flow by no more thn a decimal of the pre-existing triffic flow conditions of the area in which its active, system activates a simple, temporary dynamic shifting lane system; created by citizen drivers. this is done until the system has been turned off behind the first responders, after which civilian drivers can returned back to their original lane. my idea can also results in almost no traffic being held up for long, if at all; and we can enable our first responders to acheive faster source location, to destination location responce times, safely as well for both first responders, and civilian drivers and pedestrians, its with a small group effort - without basiclly any real effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
+here i, Sean M Jesky Propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 plus or minus (but! if we can decreese our nations first Responce Time by just 3 minutes on average - we can bump up the amount of lives saved to 40,000, to 45,000 lives saved a year) largly without any or much effect on traffic flow for long periods of time, if any - by no more then possibly a decimal of the pre-existing triffic flow condition averages for any such roads utilized, 
+
+this systems use is to create a, TDELFR (temporary dynamic express lane system for first responders); created by unified use of the FREL by citizen drivers on the roads which utilize this system on the road. 
+
+this state of driving continues until the system has been turned off behind first responders, after which civilian drivers are returned back to their original lane, after the First Responders have passed their intersection; by doing this together, we can enable our first responders to acheive faster source location, to destination location responce times. 
+
+this, done per the rules, will safely organize traffic and save lives with no real effort from civilians and pedestrians on the road; with no more effort added to them than traffic lighting rules regulally follwed, for both first responders, civilian drivers, and pedestrians. 
+
+its with a small group effort this effect occurs - honestly, without basiclly any real effort for us all; we can all work towards saving the lives of others, and in record time too, enough to make a real difference as a country. no nothing, just - we the people.  
 
 --- 
  
