@@ -1,10 +1,22 @@
 My Draft - and pre-release white paper.
 -
 
-*<!> look how well i write when im not being affected by hate crimes and sleep deprived for months on end due to hate crimes. crazy. but when im at my worst is when people get the most ammo and its often belived. god i wish i had another chance..*
+*<!> look how well i write when im not being affected by hate crimes and sleep deprived for months on end due to hate crimes. crazy. but when im at my worst is when people get the most ammo and its often belived. god i wish i had another chance..* and the managments hate group is right back at it. fuck this place and the managemnt for how ive been treated.* 
 
 I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
     (A Best Solution. by, sean m jesky, as a word document). 
+
+-----
+-----
+
+here i, Sean M Jesky Propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 to 45,000 a year (if we can decreece Responce Time by just 3 minutes on average - without hindering traffic flow by no more thn a decimal of the pre-existing triffic flow conditions of the area in which its active, system activates a simple, temporary dynamic shifting lane system; created by citizen drivers. this is done until the system has been turned off behind the first responders, after which civilian drivers can returned back to their original lane. my idea can also results in almost no traffic being held up for long, if at all; and we can enable our first responders to acheive faster source location, to destination location responce times, safely as well for both first responders, and civilian drivers and pedestrians, its with a small group effort - without basiclly any real effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
+
+![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
+![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)
+   
+*these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, to merge into a new lane or come to a stop at a intersection as required based off first responders requirements based off their route, or simply attached underneath existing traffic lights and enabled by existing power source.* 
+
+--- 
  
 ![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
     *this image shows basic rules of how it would work in action on a whiteboard. (corrected, again, again, again - and added extra notes and better look)*
@@ -50,15 +62,6 @@ If the FRLS is on, civilians cannot use that lane, if it’s on, move(merge) fro
   [!] preassigned routes to ensure a large volume of FR's no matter where they are in a disaster is located by ensuring all main roads that connect to each-other and select side-roads all have a active FRLS plan in place, so when the big button is pressed and the worst happens, no thought is requred by the operator-admin more than knowing and acting. 
 
 ---
-
-here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if at all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
-
-![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
-![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)
-   
-*these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, to merge into a new lane or come to a stop at a intersection as required based off first responders requirements based off their route, or simply attached underneath existing traffic lights and enabled by existing power source.* 
-
---- 
 
 granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
 
