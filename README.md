@@ -3,7 +3,7 @@ My Draft - and pre-release white paper.
 
 *<!> look how well i write when im not being affected by hate crimes and sleep deprived for months on end due to hate crimes. crazy. but when im at my worst is when people get the most ammo and its often belived. god i wish i had another chance..* and the managments hate group is right back at it. fuck this place and the managemnt for how ive been treated.* 
 
-I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
+I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future, and the first time i told anyone was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feeling and... sorry: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
     (A Best Solution. by, sean m jesky, as a word document). 
 
 -----
