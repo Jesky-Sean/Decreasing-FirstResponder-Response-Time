@@ -25,6 +25,119 @@ this, done per the rules, will safely organize traffic and save lives with no re
 
 its with a small group effort this effect occurs - honestly, without basiclly any real effort for us all; we can all work towards saving the lives of others, and in record time too, enough to make a real difference as a country. no nothing, just - we the people.  
 
+___________________
+
+Fifty listings each, for potental uses by First Responders (dependent on situation obviously)
+---
+*where responding to time-sensitive health problems matter:* 
+_________________________
+1. Asthma Attacks
+2. Overdose
+3. Shootings/Gunshot Wounds
+4. Heart Attack (Myocardial Infarction)
+5. Stroke
+6. Traumatic Brain Injury (TBI)
+7. Severe Allergic Reactions (Anaphylaxis)
+8. Severe Bleeding (Hemorrhage)
+9. Drowning/Near Drowning
+10. Burns
+11. Sepsis/Septic Shock
+12. Pulmonary Embolism
+13. Choking
+14. Cardiac Arrest
+15. Heatstroke
+16. Hypothermia
+17. Ectopic Pregnancy
+18. Compartment Syndrome
+19. Electrical Injuries
+20. Aneurysm Rupture
+21. Labor Complications (Prolapsed Umbilical Cord)
+22. Major Traumatic Injuries (e.g., amputations)
+23. Diabetic Ketoacidosis (DKA)
+24. Opioid-Induced Respiratory Depression
+25. Acute Renal Failure
+26. Spinal Cord Injuries
+27. Meningitis
+28. Ruptured Spleen
+29. Hyperthermia
+30. Cardiac Tamponade
+31. Severe Trauma from Vehicle Accidents
+32. Multiple Organ Failure
+33. Intracranial Hemorrhage
+34. Acute Respiratory Distress Syndrome (ARDS)
+35. Severe Abdominal Pain (Possible Appendicitis)
+36. Toxic Ingestion (e.g., Poisoning)
+37. Heat Exhaustion
+38. Severe Dehydration
+39. Perforated Ulcer
+40. Diabetic Shock (Hyperglycemia)
+41. Hypoglycemia (Severe Low Blood Sugar)
+42. Acute Liver Failure
+43. Blunt Force Trauma
+44. Severe Fractures (Open Fractures)
+45. Ruptured Ovarian Cyst
+46. Animal Bites (Venomous)
+47. Toxic Shock Syndrome
+48. Severe Infections (Necrotizing Fasciitis)
+49. Respiratory Failure
+50. Uterine Rupturs
+________________
+
+*where responding to time-sensitive crimes matters:* 
+
+1. Kidnapping
+2. Active Shooter Situations
+3. Home Invasions
+4. Armed Robbery
+5. Domestic Violence
+6. Hostage Situations
+7. Sexual Assault
+8. Human Trafficking (In Transit)
+9. Carjackings
+10. Child Abductions
+11. Hate Crimes
+12. Stalking
+13. Riot or Mob Violence
+14. Bomb Threats/Explosive Devices
+15. Terrorist Attacks
+16. Child Abuse/Neglect (Critical)
+17. Drug Deals Gone Wrong
+18. Police Chases
+19. Suicide Attempts (Active)
+20. Violent Protests
+21. Retail Theft (Escalating to Violence)
+22. Gang Violence
+23. Vandalism (Escalating to Property Damage)
+24. Assaults (Physical)
+25. Threats of Violence
+26. Road Rage Incidents
+27. Medical Emergencies (Assault Victims)
+28. Stolen Vehicles
+29. Home Invasions (Drug-Related)
+30. Destruction of Evidence (Involving Violence)
+31. Exploitation of Vulnerable Individuals
+32. Burglary
+33. Robbery with Force
+34. Identity Theft (Escalating to Threats)
+35. Gang Initiation Violence
+36. Arson (Endangering Lives)
+37. Drug Overdose (Involving Others)
+38. Threatening Behavior with Weapons
+39. Drive-by Shootings
+40. Ransom Situations
+41. Child Exploitation Online
+42. Vehicle Thefts (Involving Force)
+43. Domestic Abuse (Escalating)
+44. Stalking with Threats of Violence
+45. Prison Breaks
+46. Public Disturbances (Escalating to Violence)
+47. False Imprisonment
+48. Trespassing (With Threats)
+49. Armed Carjacking
+50. Violence in Mental Health Crisis Situations
+
+btw im creating this for the police /EMS and/or the DOT to operate, not for someone else to operate, idk about that, we dont need someone whos not ever saved a life to be involved in these decisions in real time where arguing about it being needed or not would be a burden on the system (perf. the ones dispatched control this feature as to prevent it not being used when it needs to be used, basically, them saying they are responding is enough to put responcability of proper use in their hands, if they can own and use a gun, this would be hardly above that responcability; in addition, i predict, that its use will make it easier to deescalate due to FR's arriving to people before things keep becoming more escalated; also hopfully arriving in that state makes things safter for FR's and purps. and vics. in the process. more time to assess means more time to save and help others (i know what im talking about in that last sentence only, so i know the rest would also be largly true. 
+
 --- 
  
 ![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
