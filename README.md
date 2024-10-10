@@ -1,5 +1,8 @@
 My Draft - and pre-release white paper.
 -
+
+*<!> look how well i write when im not being affected by hate crimes and sleep deprived for months on end due to hate crimes. crazy. but when im at my worst is when people get the most ammo and its often belived. god i wish i had another chance..*
+
 I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
     (A Best Solution. by, sean m jesky, as a word document). 
  
@@ -34,9 +37,16 @@ I came up with this for someone, sorry again, seriously, i thought id impress he
 *finished flowchart... it think..
 its easier to improve upon your provious work, than it is to improve upon nothing, its why ill put anything down even if its bad because that can be made better than, nothing created yet.  .. idk im trying to show how what i do is a purely iterative process that anyone could do.*
 
-or if rule number two is an issue:
-If the FRLs is on, don’t use that lane, if it’s on, move from that lane, if first responders are stuck behind a set of vehicles, disable FRLS until FR has passed, the signal from that first responders ID will tell the system to turn back on behind them if rule number two is applied at that intersection, the vehicles in front of the FR must move until they are back into a inactive FRLS lane after the turn to allow the FR around them and to prevent an accident. The FRLS turned off for rule #2 cannot be a lane which leads into an active FRLS lane. 
+--if rule number two is an issue:
+If the FRLS is on, civilians cannot use that lane, if it’s on, move(merge) from that lane into an inactive FRLS lane.  
 
+--if first responders are stuck behind a set of vehicles (due to rule #2), disable FRLS infront (the lane of the First Responder being blocked by traffic - until FR (First Responder(s) has/have passed, the signal from that first/last FR's ID will tell the system, or operator to turn off the FRLS directly behind them (or when the last FR reachs the middle of the intersection), at which point civilian drivers resume traffic rules and lighting. 
+
+--[!] if rule number two is applied at that intersection, and the FR is stuck behind the civilian vehicles in front of the FR - a special FRLS signal will trigger to signal to drivers must move until through intersection into an inactive FRLS lane to then allow the FR behind them to pass and if others are even further back it prevents collisions with FR utilizing the active lane.  
+  to acheive this end; The FRLS turned off for rule #2 cannot be a lane which leads into an active FRLS lane, meaning the FR must turn into a lane which doesnt turn into the active lane, they must also merge into active lane to prevent accidents with other FR if they are still behind the destination and their ID hasnt been scanned yet by radio signal which is relayed back to the system of operator which will then turn off the system behind the last FR assigined to location L.
+  --the system should also be able to stay active with a simple push of a button to ensure every FR needing to use that system can, if assignment by operators or system is not done or able due to override by an operator-admin to be done due to catostrphic event(s) where a large number of FR is required, as such, they are not assigned, this makes it so they all just have to make it to a rule #2 intersection that follows the route used by the first FR in the system, then the FR's, must merge from a nonactive lane to active lane. 
+
+---
 
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year without hindering traffic flow by no more than 1/10th of the pre-existing triffic flow conditions of the area in which its active, only a simple, temporary dynamic shifting of lanes by citizen drivers, until the system has been turned off behind the first responders after which civilian drivers can returned back to their original lane if they wish. results in no traffic being held up for long, if at all, and first responders can get to their destination faster than ever before, safely as well, its a group effort without any effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
 
@@ -45,7 +55,11 @@ here i propose a valid and effective means of decreasing responce times for firs
    
 *these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, to merge into a new lane or come to a stop at a intersection as required based off first responders requirements based off their route, or simply attached underneath existing traffic lights and enabled by existing power source.* 
 
+--- 
+
 granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
+
+---
 
 suggestions:
 
@@ -53,10 +67,11 @@ suggestions:
   late merging is an issue i can foresee being an issue as well, waiting till the last moment to merge, when this needs to happen ASAP.  placing, another issue is cars that pull into multipul lanes, like large trucks or even regular cars, when trying to get into a lane without the room for such a turn-in. 
   in bottle necks that hinder response times like busy streets, popular areas, etc. the places that cause the most issues. 
 
+---
+
 maybe TODO's:
 
-  -Powerpoint - How, When, Step by Step.
-   
+    -Powerpoint - How, When, Step by Step.
     -Q&A from professionals.
     -BETA testing propositions and where (Military bases might be the best place to test this solution to Faster Responce times, or other citys within citys that have a rather static number cars a day and can be kept as a good test enviroment.)
     -Edge cases & solutions.
@@ -64,7 +79,11 @@ maybe TODO's:
     -how to incentivise civilian's to follow these rules (id suggest using insurance companies, 
         if they get a photo of their licences from the first responders, a monitary fine should be sufficent, and a reward if otherwise, in this way it can be a temporary incentive until people adapt
 
-my nighbors tried to stop me from being who i was, they tried to stop me from helping others, they tried their hardest - i never give up on my dreams, i promise this dream above will be a reality and we will save lives due to it with minimal effort. 
+---
+
+<*> my nighbors tried to stop me from being who i was, they tried to stop me from helping others, they tried their hardest - i never give up on my dreams, i promise this dream above will be a reality and we will save lives due to it with minimal effort. 
+
+---
 
 (how i hope its used) possible high level uses include:
 
@@ -85,26 +104,12 @@ my nighbors tried to stop me from being who i was, they tried to stop me from he
     tornados/hurricanes/cyclones (oh we dont have those, your country might, maybe come here and we provide better protection...) or other natural disasters.  
     
     [adding more later]
- 
-   
-   
-   
 
+   <!> no one will be able to say they never helped the cops, presidents, feds, or their fellow man/or women, to me just for that laugh, it would be worth it - that would be really funny right? we all do something good, for the first time in society we all all doing something good for everyone else with no cost or payment to the helpers and helpies, thats some real hippy stuff 😂.    
    
-   
+    (never for VIPs please!... i mean, just me so i can see how it works....). 
 
-
-
-   (no one will be able to say they never helped the cops, predident, feds, or their fellow man/or women, to me just for that laugh, it would be worth it - that would be really funny right? we all do something good, for the first time in society we all all doing something good for everyone else with no cost or payment to the helpers and helpies, thats some real hippy stuff 😂. 
-   
-   
-   
-   (never for VIPs please!
-   
-   i mean, just me so i can see how it works....). 
-
-   
-
+---
    
 ![image](https://github.com/user-attachments/assets/78f754e1-0028-44d5-b391-44fba11cc9d1)
 *my personal logo*
