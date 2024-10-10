@@ -146,5 +146,12 @@ maybe TODO's:
 ---
    
 ![image](https://github.com/user-attachments/assets/330f4cbc-37ec-4a14-8996-311ec9d91967)
-*my personal logo design*
+*my personal logo design V1*
+
+![36A782D7-3A4C-46BE-80F8-BE6BB5D0D602](https://github.com/user-attachments/assets/6a8c7f79-f7d0-4956-b10e-9f440e1d1f00)
+*and V2 of my logo, i created and then had an AI do a few changes, to produce this: its al my shapes and lines, but upgraded and altered with a light AI touch.*
+
+
+
+
   
