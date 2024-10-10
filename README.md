@@ -138,6 +138,6 @@ maybe TODO's:
 
 ---
    
-![image](https://github.com/user-attachments/assets/78f754e1-0028-44d5-b391-44fba11cc9d1)
-*my personal logo*
+![image](https://github.com/user-attachments/assets/330f4cbc-37ec-4a14-8996-311ec9d91967)
+*my personal logo design*
   
