@@ -64,11 +64,35 @@ granted, this system of emergency lights attached to traffic light posts, or oth
 
 ---
 
-suggestions:
+*suggestions:
 
-  mark streets with this system in place, so when people turn onto these streets they cant say they were surprised or say they had no idea, etc. 
-  late merging is an issue i can foresee being an issue as well, waiting till the last moment to merge, when this needs to happen ASAP.  placing, another issue is cars that pull into multipul lanes, like large trucks or even regular cars, when trying to get into a lane without the room for such a turn-in. 
-  in bottle necks that hinder response times like busy streets, popular areas, etc. the places that cause the most issues. 
+>   >mark streets with this system in place, so when people turn onto these streets they cant say they were surprised or say they had no idea, etc, in such areas be more mindful of space between vehicles as to allow faster merging if or when required.
+>  >
+>  >
+>  >late merging is an issue i can foresee being an issue as well.
+>  >
+>  >
+>  >waiting till the last moment to merge, when this needs to happen ASAP.
+>  >
+>  >
+>  >placmsnt (hills and vallys, turns, distance from FRLS and Traffic lights to see, and other unlisted obstructions.
+>  >
+>  >
+>  >another issue is cars that pull into a few lanes, like large trucks or even regular cars, when trying to get into a lane without the room for such a turn-in.
+>   >
+>   >placment in bottle necks that hinder response times like busy streets, popular areas, etc. the places that cause the most issues.
+>  >
+>  >
+>  >Like the faster the blinking or blinking intermittently, or even with an additional color(yellowish) to indicate you have to merge within two intersections as it’s the start of the route you have to merge.  (Intersections after the first two, all the way until its destination, or get as close it it’s destination as is possible by FR’s  will (should) be completely empty from top to bottom, and will, or rather should in theory, create FR’s their own, temporary-dynamic-Emergency Response-First-Responder-Express-lane (or aka, the TDERFREL), or essentially giving our FR’s their own autobahn (but with a actual, emphasis on purposely using Horse Power - gd freedom horses -  A world changing use of them freedom horse’s. Thank you Jesus! (I hope to one day own a Ferrari or Koenigsegg and I just know one day!!!)) to save thousands of lives a year.
+>   >
+>   >I think all vehicles should be required to merge before the next two intersections, what if they are at the start of the activated route…
+>   >
+>   >predetermined routes for massive emergencies that require a large volume of FR's go to destination of an emergency or worse.
+>   >
+>   >ensure all main roads and select side roads be equipped to ensure prompt responce times no matter the original location of FR. 
+
+
+im just getting started in life with this inventing shit. only been doing it since 16 ish lol, and after all this time; im now getting my foothold.
 
 ---
 
