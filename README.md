@@ -256,7 +256,7 @@ maybe TODO's:
 *and V2 of my logo, i created and then had an AI do a few changes, to produce this: its al my shapes and lines, but upgraded and altered with a light AI touch.*
 
 __________________
-*continued lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
+*lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
 
 Medical Emergencies Where Seconds/Minutes Matter
 
@@ -477,3 +477,4 @@ Here’s the reordered list of criminal situations where seconds and minutes mat
 33. **Child Abuse/Neglect (Critical)**  
     In situations where a child is in immediate danger, time is crucial to remove the child from harm and provide medical or emotional support.
 
+credit peoducing list goes to an AI. (im not sponsered so im not going to advertise whoms AI.)
