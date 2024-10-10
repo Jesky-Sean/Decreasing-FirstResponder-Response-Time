@@ -11,11 +11,6 @@ I came up with this for someone, sorry again, seriously, i thought id impress he
 
 here i, Sean M Jesky Propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 to 45,000 a year (if we can decreece Responce Time by just 3 minutes on average - without hindering traffic flow by no more thn a decimal of the pre-existing triffic flow conditions of the area in which its active, system activates a simple, temporary dynamic shifting lane system; created by citizen drivers. this is done until the system has been turned off behind the first responders, after which civilian drivers can returned back to their original lane. my idea can also results in almost no traffic being held up for long, if at all; and we can enable our first responders to acheive faster source location, to destination location responce times, safely as well for both first responders, and civilian drivers and pedestrians, its with a small group effort - without basiclly any real effort for us all to save the lives of others, and in record time too, enough to make a real difference. 
 
-![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
-![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)
-   
-*these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, to merge into a new lane or come to a stop at a intersection as required based off first responders requirements based off their route, or simply attached underneath existing traffic lights and enabled by existing power source.* 
-
 --- 
  
 ![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
@@ -64,6 +59,13 @@ If the FRLS is on, civilians cannot use that lane, if it’s on, move(merge) fro
 ---
 
 granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
+
+---
+
+![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
+![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)
+   
+*these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, to merge into a new lane or come to a stop at a intersection as required based off first responders requirements based off their route, or simply attached underneath existing traffic lights and enabled by existing power source.* 
 
 ---
 
