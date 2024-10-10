@@ -27,7 +27,7 @@ its with a small group effort this effect occurs - honestly, without basiclly an
 
 ___________________
 
-Fifty listings each, for potental uses by First Responders (dependent on situation obviously)
+*listings each, for potental uses by First Responders (dependent on situation obviously)*
 ---
 *where responding to time-sensitive health problems matter:* 
 _________________________
