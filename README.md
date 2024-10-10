@@ -249,10 +249,10 @@ maybe TODO's:
 
 ---
    
-![image](https://github.com/user-attachments/assets/330f4cbc-37ec-4a14-8996-311ec9d91967)
+![image](https://github.com/user-attachments/assets/0a71dff6-4f47-40c5-a76e-96648b32ae8c)
 *my personal logo design V1*
 
-![36A782D7-3A4C-46BE-80F8-BE6BB5D0D602](https://github.com/user-attachments/assets/6a8c7f79-f7d0-4956-b10e-9f440e1d1f00)
+![image](https://github.com/user-attachments/assets/060b696f-6f9e-488c-8e6b-ccf51abe76ba)
 *and V2 of my logo, i created and then had an AI do a few changes, to produce this: its al my shapes and lines, but upgraded and altered with a light AI touch.*
 
 __________________
