@@ -60,90 +60,94 @@ With minimal effort, this collective action allows us to save lives and make a r
 ___________________
 
 *listings each, for potental uses by First Responders (dependent on situation obviously)*
----
-*where responding to time-sensitive health problems matter:* 
-_________________________
+--
 
-Life or Death Injuries Where Time is Critical
+# Table of Contents
 
-1. Cardiac Arrest
-2. Severe Bleeding (Hemorrhage)
-3. Stroke
-4. Heart Attack (Myocardial Infarction)
-5. Overdose
-6. Anaphylaxis (Severe Allergic Reactions)
-7. Aneurysm Rupture
-8. Pulmonary Embolism
-9. Severe Trauma from Vehicle Accidents
-10. Traumatic Brain Injury (TBI)
-11. Drowning/Near Drowning
-12. Shootings/Gunshot Wounds
-13. Asthma Attacks
-14. Electrical Injuries
-15. Compartment Syndrome
-16. Ectopic Pregnancy
-17. Ruptured Spleen
-18. Spinal Cord Injuries
-19. Sepsis/Septic Shock
-20. Hypothermia
-21. Heatstroke
-22. Diabetic Ketoacidosis (DKA)
-23. Acute Renal Failure
-24. Intracranial Hemorrhage
-25. Severe Burns
-26. Choking
-27. Blunt Force Trauma
-28. Acute Respiratory Distress Syndrome (ARDS)
-29. Cardiac Tamponade
-30. Severe Abdominal Pain (Possible Appendicitis)
-31. Perforated Ulcer
-32. Severe Dehydration
-33. Heat Exhaustion
-34. Hypoglycemia (Severe Low Blood Sugar)
-35. Toxic Ingestion (e.g., Poisoning)
-36. Acute Liver Failure
-37. Hyperthermia
+## Medical Emergencies or criminal situations Where Seconds/Minutes Matter
 
----
-*where responding to time-sensitive criminal-matters problems, matter:* 
+## Table of Contents
+1. [Cardiac Arrest](#cardiac-arrest)
+2. [Severe Bleeding (Hemorrhage)](#severe-bleeding-hemorrhage)
+3. [Stroke](#stroke)
+4. [Heart Attack (Myocardial Infarction)](#heart-attack-myocardial-infarction)
+5. [Overdose](#overdose)
+6. [Anaphylaxis (Severe Allergic Reactions)](#anaphylaxis-severe-allergic-reactions)
+7. [Aneurysm Rupture](#aneurysm-rupture)
+8. [Pulmonary Embolism](#pulmonary-embolism)
+9. [Severe Trauma from Vehicle Accidents](#severe-trauma-from-vehicle-accidents)
+10. [Traumatic Brain Injury (TBI)](#traumatic-brain-injury-tbi)
+11. [Drowning/Near Drowning](#drowningnear-drowning)
+12. [Shootings/Gunshot Wounds](#shootingsgunshot-wounds)
+13. [Asthma Attacks](#asthma-attacks)
+14. [Electrical Injuries](#electrical-injuries)
+15. [Compartment Syndrome](#compartment-syndrome)
+16. [Ectopic Pregnancy](#ectopic-pregnancy)
+17. [Ruptured Spleen](#ruptured-spleen)
+18. [Spinal Cord Injuries](#spinal-cord-injuries)
+19. [Sepsis/Septic Shock](#sepsisseptic-shock)
+20. [Hypothermia](#hypothermia)
+21. [Heatstroke](#heatstroke)
+22. [Diabetic Ketoacidosis (DKA)](#diabetic-ketoacidosis-dka)
+23. [Acute Renal Failure](#acute-renal-failure)
+24. [Intracranial Hemorrhage](#intracranial-hemorrhage)
+25. [Severe Burns](#severe-burns)
+26. [Choking](#choking)
+27. [Blunt Force Trauma](#blunt-force-trauma)
+28. [Acute Respiratory Distress Syndrome (ARDS)](#acute-respiratory-distress-syndrome-ards)
+29. [Cardiac Tamponade](#cardiac-tamponade)
+30. [Severe Abdominal Pain (Possible Appendicitis)](#severe-abdominal-pain-possible-appendicitis)
+31. [Perforated Ulcer](#perforated-ulcer)
+32. [Severe Dehydration](#severe-dehydration)
+33. [Heat Exhaustion](#heat-exhaustion)
+34. [Hypoglycemia (Severe Low Blood Sugar)](#hypoglycemia-severe-low-blood-sugar)
+35. [Toxic Ingestion (e.g., Poisoning)](#toxic-ingestion-eg-poisoning)
+36. [Acute Liver Failure](#acute-liver-failure)
+37. [Hyperthermia](#hyperthermia) 
 
-1. Active Shooter Situations
-2. Terrorist Attacks
-3. Arson
-4. Sexual Assault and/or Other, Including: Rape, Sexual Harassment, Child Molestation, Sexual Exploitation, and Sexual Coercion
-5. Kidnapping
-6. Hate Crimes
-7. Domestic Violence
-8. Armed Robbery
-9. Home Invasions
-10. Carjackings
-11. Assaults (Physical)
-12. Domestic Abuse (Escalating)
-13. Stalking with Threats of Violence
-14. Bomb Threats/Explosive Devices
-15. Hostage Situations
-16. Suicide Attempts (Active)
-17. Child Abductions
-18. Police Chases
-19. Threatening Behavior with Weapons
-20. Vandalism (Escalating to Property Damage)
-21. Burglary
-22. Prison Breaks
-23. Ransom Situations
-24. False Imprisonment
-25. Retail Theft (Escalating to Violence)
-26. Violence in Mental Health Crisis Situations
-27. Threats of Violence
-28. Exploitation of Vulnerable Individuals
-29. Identity Theft (Escalating to Threats)
-30. Road Rage Incidents
-31. Police Officer Involved Shootings
-32. Armed Carjacking
-33. Child Abuse/Neglect (Critical)
+## Criminal or Otherwise Emergencies Where Seconds/Minutes Matter# Table of Contents
+
+- [Situations Requiring Immediate Response](#situations-requiring-immediate-response)
+  - [Terrorist Attacks](#terrorist-attacks)
+  - [Active Shooter Situations](#active-shooter-situations)
+  - [Arson](#arson)
+  - [Sexual Assault and/or Other, Including Rape, Sexual Harassment, Child Molestation, Sexual Exploitation, and Sexual Coercion](#sexual-assault-andor-other-including-rape-sexual-harassment-child-molestation-sexual-exploitation-and-sexual-coercion)
+  - [Kidnapping](#kidnapping)
+  - [Hate Crimes](#hate-crimes)
+  - [Domestic Violence](#domestic-violence)
+  - [Armed Robbery](#armed-robbery)
+  - [Home Invasions](#home-invasions)
+  - [Carjackings](#carjackings)
+  - [Assaults (Physical)](#assaults-physical)
+  - [Domestic Abuse (Escalating)](#domestic-abuse-escalating)
+  - [Stalking with Threats of Violence](#stalking-with-threats-of-violence)
+  - [Bomb Threats/Explosive Devices](#bomb-threatsexplosive-devices)
+  - [Hostage Situations](#hostage-situations)
+  - [Suicide Attempts (Active)](#suicide-attempts-active)
+  - [Child Abductions](#child-abductions)
+  - [Police Chases](#police-chases)
+  - [Threatening Behavior with Weapons](#threatening-behavior-with-weapons)
+  - [Vandalism (Escalating to Property Damage)](#vandalism-escalating-to-property-damage)
+  - [Burglary](#burglary)
+  - [Prison Breaks](#prison-breaks)
+  - [Ransom Situations](#ransom-situations)
+  - [False Imprisonment](#false-imprisonment)
+  - [Retail Theft (Escalating to Violence)](#retail-theft-escalating-to-violence)
+  - [Violence in Mental Health Crisis Situations](#violence-in-mental-health-crisis-situations)
+  - [Threats of Violence](#threats-of-violence)
+  - [Exploitation of Vulnerable Individuals](#exploitation-of-vulnerable-individuals)
+  - [Identity Theft (Escalating to Threats)](#identity-theft-escalating-to-threats)
+  - [Road Rage Incidents](#road-rage-incidents)
+  - [Police Officer Involved Shootings](#police-officer-involved-shootings)
+  - [Armed Carjacking](#armed-carjacking)
+  - [Child Abuse/Neglect (Critical)](#child-abuseneglect-critical)
+__________________
+*lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
 
 > see bottom of the "readme.md for the AI's explanation on how these two lists (of priorty from severe to less severe), and how items are affected by first responders responce time of such issues.
-> 
-----
+
+________
+________
 
 btw im creating this for the police /EMS and/or the DOT to operate, not for someone else to operate, idk about that, we dont need someone whos not ever saved a life to be involved in these decisions in real time where arguing about it being needed or not would be a burden on the system (perf. the ones dispatched control this feature as to prevent it not being used when it needs to be used, basically, them saying they are responding is enough to put responcability of proper use in their hands, if they can own and use a gun, this would be hardly above that responcability; in addition, i predict, that its use will make it easier to deescalate due to FR's arriving to people before things keep becoming more escalated; also hopfully arriving in that state makes things safter for FR's and purps. and vics. in the process. more time to assess means more time to save and help others (i know what im talking about in that last sentence only, so i know the rest would also be largly true. 
 
@@ -266,90 +270,6 @@ maybe TODO's:
     (never for VIPs please!... i mean, just me so i can see how it works....). 
 
 ____
-
-
-# Table of Contents
-
-## Medical Emergencies or criminal situations Where Seconds/Minutes Matter
-
-## Table of Contents
-1. [Cardiac Arrest](#cardiac-arrest)
-2. [Severe Bleeding (Hemorrhage)](#severe-bleeding-hemorrhage)
-3. [Stroke](#stroke)
-4. [Heart Attack (Myocardial Infarction)](#heart-attack-myocardial-infarction)
-5. [Overdose](#overdose)
-6. [Anaphylaxis (Severe Allergic Reactions)](#anaphylaxis-severe-allergic-reactions)
-7. [Aneurysm Rupture](#aneurysm-rupture)
-8. [Pulmonary Embolism](#pulmonary-embolism)
-9. [Severe Trauma from Vehicle Accidents](#severe-trauma-from-vehicle-accidents)
-10. [Traumatic Brain Injury (TBI)](#traumatic-brain-injury-tbi)
-11. [Drowning/Near Drowning](#drowningnear-drowning)
-12. [Shootings/Gunshot Wounds](#shootingsgunshot-wounds)
-13. [Asthma Attacks](#asthma-attacks)
-14. [Electrical Injuries](#electrical-injuries)
-15. [Compartment Syndrome](#compartment-syndrome)
-16. [Ectopic Pregnancy](#ectopic-pregnancy)
-17. [Ruptured Spleen](#ruptured-spleen)
-18. [Spinal Cord Injuries](#spinal-cord-injuries)
-19. [Sepsis/Septic Shock](#sepsisseptic-shock)
-20. [Hypothermia](#hypothermia)
-21. [Heatstroke](#heatstroke)
-22. [Diabetic Ketoacidosis (DKA)](#diabetic-ketoacidosis-dka)
-23. [Acute Renal Failure](#acute-renal-failure)
-24. [Intracranial Hemorrhage](#intracranial-hemorrhage)
-25. [Severe Burns](#severe-burns)
-26. [Choking](#choking)
-27. [Blunt Force Trauma](#blunt-force-trauma)
-28. [Acute Respiratory Distress Syndrome (ARDS)](#acute-respiratory-distress-syndrome-ards)
-29. [Cardiac Tamponade](#cardiac-tamponade)
-30. [Severe Abdominal Pain (Possible Appendicitis)](#severe-abdominal-pain-possible-appendicitis)
-31. [Perforated Ulcer](#perforated-ulcer)
-32. [Severe Dehydration](#severe-dehydration)
-33. [Heat Exhaustion](#heat-exhaustion)
-34. [Hypoglycemia (Severe Low Blood Sugar)](#hypoglycemia-severe-low-blood-sugar)
-35. [Toxic Ingestion (e.g., Poisoning)](#toxic-ingestion-eg-poisoning)
-36. [Acute Liver Failure](#acute-liver-failure)
-37. [Hyperthermia](#hyperthermia) 
-
-## Criminal or Otherwise Emergencies Where Seconds/Minutes Matter
-1. [Terrorist Attacks](#terrorist-attacks)  
-2. [Active Shooter Situations](#active-shooter-situations)  
-3. [Arson](#arson)  
-4. [Sexual Assault and/or Other, Including Rape, Sexual Harassment, Child Molestation, Sexual Exploitation, and Sexual Coercion](#sexual-assault-andor-other-including-rape-sexual-harassment-child-molestation-sexual-exploitation-and-sexual-coercion)  
-5. [Kidnapping](#kidnapping)  
-6. [Hate Crimes](#hate-crimes)  
-7. [Domestic Violence](#domestic-violence)  
-8. [Armed Robbery](#armed-robbery)  
-9. [Home Invasions](#home-invasions)  
-10. [Assault (Non-Sexual)](#assault-non-sexual)  
-11. [Vandalism](#vandalism)  
-12. [Burglary](#burglary)  
-13. [Stalking](#stalking)  
-14. [Cybercrime](#cybercrime)  
-15. [Public Disturbances](#public-disturbances)  
-16. [Riots](#riots)  
-17. [Child Abuse](#child-abuse)  
-18. [Elder Abuse](#elder-abuse)  
-19. [Fraud](#fraud)  
-20. [Human Trafficking](#human-trafficking)  
-21. [Missing Persons](#missing-persons)  
-22. [Unsolved Homicides](#unsolved-homicides)  
-23. [Natural Disasters (when criminal acts are involved)](#natural-disasters-when-criminal-acts-are-involved)  
-24. [Environmental Crimes](#environmental-crimes)  
-25. [Impaired Driving](#impaired-driving)  
-26. [Child Abduction](#child-abduction)  
-27. [Mass Casualty Incidents](#mass-casualty-incidents)  
-28. [Cyberbullying](#cyberbullying)  
-29. [Extortion](#extortion)  
-30. [Organized Crime](#organized-crime)  
-31. [Blackmail](#blackmail)  
-32. [Street Gangs](#street-gangs)  
-33. [Political Violence](#political-violence)  
-34. [Home Insecurity](#home-insecurity)  
-35. [Social Unrest](#social-unrest)
-
-__________________
-*lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
 
 Medical Emergencies Where Seconds/Minutes Matter
 
