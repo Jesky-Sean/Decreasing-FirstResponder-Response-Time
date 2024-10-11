@@ -265,6 +265,87 @@ maybe TODO's:
    
     (never for VIPs please!... i mean, just me so i can see how it works....). 
 
+____
+
+
+# Table of Contents
+
+## Medical Emergencies Where Seconds/Minutes Matter
+1. [Cardiac Arrest](#cardiac-arrest)  
+2. [Severe Bleeding (Hemorrhage)](#severe-bleeding-hemorrhage)  
+3. [Stroke](#stroke)  
+4. [Heart Attack (Myocardial Infarction)](#heart-attack-myocardial-infarction)  
+5. [Overdose](#overdose)  
+6. [Anaphylaxis (Severe Allergic Reactions)](#anaphylaxis-severe-allergic-reactions)  
+7. [Aneurysm Rupture](#aneurysm-rupture)  
+8. [Pulmonary Embolism](#pulmonary-embolism)  
+9. [Severe Trauma from Vehicle Accidents](#severe-trauma-from-vehicle-accidents)  
+10. [Traumatic Brain Injury (TBI)](#traumatic-brain-injury-tbi)  
+11. [Drowning/Near Drowning](#drowningnear-drowning)  
+12. [Shootings/Gunshot Wounds](#shootingsgunshot-wounds)  
+13. [Asthma Attacks](#asthma-attacks)  
+14. [Electrical Injuries](#electrical-injuries)  
+15. [Compartment Syndrome](#compartment-syndrome)  
+16. [Ectopic Pregnancy](#ectopic-pregnancy)  
+17. [Ruptured Spleen](#ruptured-spleen)  
+18. [Spinal Cord Injuries](#spinal-cord-injuries)  
+19. [Sepsis/Septic Shock](#sepsisseptic-shock)  
+20. [Hypothermia](#hypothermia)  
+21. [Heatstroke](#heatstroke)  
+22. [Diabetic Ketoacidosis (DKA)](#diabetic-ketoacidosis-dka)  
+23. [Acute Renal Failure](#acute-renal-failure)  
+24. [Intracranial Hemorrhage](#intracranial-hemorrhage)  
+25. [Severe Burns](#severe-burns)  
+26. [Choking](#choking)  
+27. [Blunt Force Trauma](#blunt-force-trauma)  
+28. [Acute Respiratory Distress Syndrome (ARDS)](#acute-respiratory-distress-syndrome-ards)  
+29. [Cardiac Tamponade](#cardiac-tamponade)  
+30. [Severe Abdominal Pain (Possible Appendicitis)](#severe-abdominal-pain-possible-appendicitis)  
+31. [Perforated Ulcer](#perforated-ulcer)  
+32. [Severe Dehydration](#severe-dehydration)  
+33. [Heat Exhaustion](#heat-exhaustion)  
+34. [Hypoglycemia (Severe Low Blood Sugar)](#hypoglycemia-severe-low-blood-sugar)  
+35. [Toxic Ingestion (e.g., Poisoning)](#toxic-ingestion-e-poisoning)  
+36. [Acute Liver Failure](#acute-liver-failure)  
+37. [Hyperthermia](#hyperthermia)  
+
+## Criminal or Otherwise Emergencies Where Seconds/Minutes Matter
+1. [Terrorist Attacks](#terrorist-attacks)  
+2. [Active Shooter Situations](#active-shooter-situations)  
+3. [Arson](#arson)  
+4. [Sexual Assault and/or Other, Including Rape, Sexual Harassment, Child Molestation, Sexual Exploitation, and Sexual Coercion](#sexual-assault-andor-other-including-rape-sexual-harassment-child-molestation-sexual-exploitation-and-sexual-coercion)  
+5. [Kidnapping](#kidnapping)  
+6. [Hate Crimes](#hate-crimes)  
+7. [Domestic Violence](#domestic-violence)  
+8. [Armed Robbery](#armed-robbery)  
+9. [Home Invasions](#home-invasions)  
+10. [Assault (Non-Sexual)](#assault-non-sexual)  
+11. [Vandalism](#vandalism)  
+12. [Burglary](#burglary)  
+13. [Stalking](#stalking)  
+14. [Cybercrime](#cybercrime)  
+15. [Public Disturbances](#public-disturbances)  
+16. [Riots](#riots)  
+17. [Child Abuse](#child-abuse)  
+18. [Elder Abuse](#elder-abuse)  
+19. [Fraud](#fraud)  
+20. [Human Trafficking](#human-trafficking)  
+21. [Missing Persons](#missing-persons)  
+22. [Unsolved Homicides](#unsolved-homicides)  
+23. [Natural Disasters (when criminal acts are involved)](#natural-disasters-when-criminal-acts-are-involved)  
+24. [Environmental Crimes](#environmental-crimes)  
+25. [Impaired Driving](#impaired-driving)  
+26. [Child Abduction](#child-abduction)  
+27. [Mass Casualty Incidents](#mass-casualty-incidents)  
+28. [Cyberbullying](#cyberbullying)  
+29. [Extortion](#extortion)  
+30. [Organized Crime](#organized-crime)  
+31. [Blackmail](#blackmail)  
+32. [Street Gangs](#street-gangs)  
+33. [Political Violence](#political-violence)  
+34. [Home Insecurity](#home-insecurity)  
+35. [Social Unrest](#social-unrest)
+
 __________________
 *lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
 
@@ -384,15 +465,18 @@ Medical Emergencies Where Seconds/Minutes Matter
 and crimes where every second and minute also matter:
 
 
+
 ## Criminal or Otherwise Emergencies Where Seconds/Minutes Matter
 
 Here’s the reordered list of criminal situations where seconds and minutes matter, along with explanations for why time is critical in each case:
 
-1. **Active Shooter Situations**  
-   Time is critical because the shooter is actively causing harm, and every second can mean the difference between life and death for multiple people. Immediate intervention is needed to neutralize the threat and minimize casualties.
 
-2. **Terrorist Attacks**  
-   In cases of bombings, hostage situations, or other large-scale terror attacks, rapid response is essential to prevent further casualties and chaos. Early intervention can also stop secondary attacks and reduce mass panic.
+
+1. **Terrorist Attacks**
+In cases of bombings, hostage situations, or other large-scale terror attacks, rapid response is essential to prevent further casualties and chaos. Early intervention can also stop secondary attacks and reduce mass panic.
+
+2. **Active Shooter Situations**
+Time is critical because the shooter is actively causing harm, and every second can mean the difference between life and death for multiple people. Immediate intervention is needed to neutralize the threat and minimize casualties.
 
 3. **Arson**  
    Fires spread quickly, and in an arson scenario, seconds matter in preventing the loss of life and extensive property damage. Early firefighting efforts and evacuation can save lives and minimize destruction.
