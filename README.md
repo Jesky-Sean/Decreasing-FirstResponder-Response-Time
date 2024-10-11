@@ -1,5 +1,8 @@
 ![image](https://github.com/user-attachments/assets/84152ec6-51cf-4770-be4d-d5f79c7fc918)
-My Draft - and pre-release white paper.
+
+>This Repo contains ReadMe along with my My Drafted-pre-release white paper of a system which its purpose is to create a temporary dynamic express lane which re-organizes traffic during an emergency response from first responders with the goal to save 10,000 to 45,000 lives a year when implemented (in just america)
+
+
 -
 written, designed, and invented by:
 ![image](https://github.com/user-attachments/assets/ed23e75d-93af-4718-bbea-91f76aa99979)
