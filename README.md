@@ -148,14 +148,18 @@ ________
   - [Police Officer Involved Shootings](#police-officer-involved-shootings)
   - [Armed Carjacking](#armed-carjacking)
   - [Child Abuse/Neglect (Critical)](#child-abuseneglect-critical)
+ _______
  
--  [*Other*](#other)
+-  [**Other**](#other)
  
-- [Chemical Spills and Hazardous Material Releases](#chemical-spills-and-hazardous-material-releases)  
-- [Nuclear or Radiological Incidents](#nuclear-or-radiological-incidents)  
-- [Public Health Emergencies (e.g., Infectious Disease Outbreaks)](#public-health-emergencies-eg-infectious-disease-outbreaks)  
-- [Natural Disasters (e.g., Earthquakes, Floods, Wildfires, Hurricanes, Tornadoes)](#natural-disasters-eg-earthquakes-floods-wildfires-hurricanes-tornadoes) 
+  - [Chemical Spills and Hazardous Material Releases](#chemical-spills-and-hazardous-material-releases)
+  - [Nuclear or Radiological Incidents](#nuclear-or-radiological-incidents)
+  - [Public Health Emergencies (e.g., Infectious Disease Outbreaks)](#public-health-emergencies-eg-infectious-disease-outbreaks)
+  - [Natural Disasters (e.g.
+  Earthquakes, Floods, Wildfires, Hurricanes, Tornadoes)](#natural-disasters-eg-earthquakes-floods-wildfires-hurricanes-tornadoes)
+  
 __________________
+
 *lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
 
 > see bottom of the "readme.md for the AI's explanation on how these two lists (of priorty from severe to less severe), and how items are affected by first responders responce time of such issues.
