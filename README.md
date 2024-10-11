@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/84152ec6-51cf-4770-be4d-d5f79c7fc918)
 My Draft - and pre-release white paper.
 -
 written, designed, and invented by:
@@ -264,14 +265,6 @@ maybe TODO's:
    
     (never for VIPs please!... i mean, just me so i can see how it works....). 
 
----
-   
-![image](https://github.com/user-attachments/assets/05c6bd8d-acc2-4684-a782-7ae497920257)
-*my personal logo design V1*
-
-![image](https://github.com/user-attachments/assets/84152ec6-51cf-4770-be4d-d5f79c7fc918)
-*and V2 of my logo, i created and then had an AI do a few changes, to produce this: its AI also, using my shapes and lines, but upgraded and altered with a light AI touch.*
-
 __________________
 *lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
 
@@ -495,3 +488,10 @@ Here’s the reordered list of criminal situations where seconds and minutes mat
     In situations where a child is in immediate danger, time is crucial to remove the child from harm and provide medical or emotional support.
 
 credit peoducing list goes to an AI. (im not sponsered so im not going to advertise whoms AI.)
+
+__________
+
+   
+![image](https://github.com/user-attachments/assets/05c6bd8d-acc2-4684-a782-7ae497920257)
+*my personal logo design V1, and 
+and V2 of my logo, i created and then had an AI do a few changes, to produce this: its AI also, using my shapes and lines, but upgraded and altered with a light AI touch.*
