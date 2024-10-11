@@ -145,59 +145,20 @@ __________________
 *lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
 
 > see bottom of the "readme.md for the AI's explanation on how these two lists (of priorty from severe to less severe), and how items are affected by first responders responce time of such issues.
-
-________
-________
-
-btw im creating this for the police /EMS and/or the DOT to operate, not for someone else to operate, idk about that, we dont need someone whos not ever saved a life to be involved in these decisions in real time where arguing about it being needed or not would be a burden on the system (perf. the ones dispatched control this feature as to prevent it not being used when it needs to be used, basically, them saying they are responding is enough to put responcability of proper use in their hands, if they can own and use a gun, this would be hardly above that responcability; in addition, i predict, that its use will make it easier to deescalate due to FR's arriving to people before things keep becoming more escalated; also hopfully arriving in that state makes things safter for FR's and purps. and vics. in the process. more time to assess means more time to save and help others (i know what im talking about in that last sentence only, so i know the rest would also be largly true. 
-
---- 
  
 ![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
     *this image shows basic rules of how it would work in action on a whiteboard. (corrected, again, again, again - and added extra notes and better look)*
-
-    Rule #0: The FRLS (first responder lighting system) turns off after first
-        responder(s) have passed the intersection(s) along their route(s).
-        
-    Rule #1: when active, and the FRLS is on. civilian drivers must merge into any
-       inactive lane (anywhere the FRLS is not on and flashing). 
-        
-    Rule #2: when the FRLS is active across all lanes of a intersection, all cars
-        within those lanes must remain stationary, and not move until rule #0 
-        becomes true (when FRLS is off at that intersection), at which point 
-        resume with regular traffic light system rules, as civilian drivers normally
-        would.
-       
-    Rule #3: FRLS stays active until one intersection after the first
-        responders destination. 
-
-    RESULT: A temporay dynamic express lane for first responders to quickly arrive at
-        their destination as to reduce casualitys that a reduction in time can
-        produce, as the studies suggest is possible to save over 10,000 lives a
-        year if we just reduce the responce time by one minute. we can all be apart
-        of something great and there is nothing more we have to do but move left,
-        right, or just a simple, temp. stop when we drive, and only for a few moments 
-        of time. we, the people can all do something great for us all at no cost to 
-        us all, together as a country. we can be a Utopiatarian society. we can
-        achevie it if we try, together.   
 ![image](https://github.com/user-attachments/assets/6d998793-e94c-4be6-8231-cf1faf58177f)
 *finished flowchart... it think..
 its easier to improve upon your provious work, than it is to improve upon nothing, its why ill put anything down even if its bad because that can be made better than, nothing created yet.  .. idk im trying to show how what i do is a purely iterative process that anyone could do.*
-
----
-
-granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
-
----
-
 ![image](https://github.com/user-attachments/assets/28e00c27-0bbc-4082-a034-1befcde08815)
-![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)
-   
+![image](https://github.com/user-attachments/assets/0571918c-16ca-4984-ac40-8259776b50da)   
 *these two images show concept art of how it could be implemented if we redesgined traffic lights, and we could just embedd first responder lights within traffic lights to enable this effect required to alert drivers, to merge into a new lane or come to a stop at a intersection as required based off first responders requirements based off their route, or simply attached underneath existing traffic lights and enabled by existing power source.* 
 
----
+___
 
-*suggestions:
+
+*thoughts, suggestions and thougts:
 
 >   >mark streets with this system in place, so when people turn onto these streets they cant say they were surprised or say they had no idea, etc, in such areas be more mindful of space between vehicles as to allow faster merging if or when required.
 >  >
@@ -224,6 +185,38 @@ granted, this system of emergency lights attached to traffic light posts, or oth
 >   >
 >   >ensure all main roads and select side roads be equipped to ensure prompt responce times no matter the original location of FR. 
 
+---
+
+    Rule #0: The FRLS (first responder lighting system) turns off after first
+        responder(s) have passed the intersection(s) along their route(s).
+        
+    Rule #1: when active, and the FRLS is on. civilian drivers must merge into any
+       inactive lane (anywhere the FRLS is not on and flashing). 
+        
+    Rule #2: when the FRLS is active across all lanes of a intersection, all cars
+        within those lanes must remain stationary, and not move until rule #0 
+        becomes true (when FRLS is off at that intersection), at which point 
+        resume with regular traffic light system rules, as civilian drivers normally
+        would.
+       
+    Rule #3: FRLS stays active until one intersection after the first
+        responders destination. 
+
+    RESULT: A temporay dynamic express lane for first responders to quickly arrive at
+        their destination as to reduce casualitys that a reduction in time can
+        produce, as the studies suggest is possible to save over 10,000 lives a
+        year if we just reduce the responce time by one minute. we can all be apart
+        of something great and there is nothing more we have to do but move left,
+        right, or just a simple, temp. stop when we drive, and only for a few moments 
+        of time. we, the people can all do something great for us all at no cost to 
+        us all, together as a country. we can be a Utopiatarian society. we can
+        achevie it if we try, together.   
+
+granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
+
+btw im creating this for the police /EMS and/or the DOT to operate, not for someone else to operate, idk about that, we dont need someone whos not ever saved a life to be involved in these decisions in real time where arguing about it being needed or not would be a burden on the system (perf. the ones dispatched control this feature as to prevent it not being used when it needs to be used, basically, them saying they are responding is enough to put responcability of proper use in their hands, if they can own and use a gun, this would be hardly above that responcability; in addition, i predict, that its use will make it easier to deescalate due to FR's arriving to people before things keep becoming more escalated; also hopfully arriving in that state makes things safter for FR's and purps. and vics. in the process. more time to assess means more time to save and help others (i know what im talking about in that last sentence only, so i know the rest would also be largly true. 
+
+---
 
 im just getting started in life with this inventing shit. only been doing it since 16 ish lol, and after all this time; im now getting my foothold.
 
