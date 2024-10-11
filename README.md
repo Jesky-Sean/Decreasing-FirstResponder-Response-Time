@@ -15,21 +15,44 @@ I came up with this for someone, sorry again, seriously, i thought id impress he
 -----
 -----
 
-here i, Sean M Jesky Propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 plus or minus (but! if we can decreese our nations first Responce Time by just 3 minutes on average - we can bump up the amount of lives saved to 40,000, to 45,000 lives saved a year)
+revised peoposal (spellcheck and rewritten.. well all the same words, in all its glory with some help)
 
-this strategy occurs largly without any effort, or much at all - thiss effect on traffic flow, if any - does occur for long periods of time, if any - by no more then possibly a decimal of the pre-existing conditions - my hope is that it actually reduces averages for any such roads utilizd, if used over-time on roads where emergency responce can or could or does cause delays currently - due to various reasons like; congestion, poor road design (way better over the last decade), or other traffic related problems relating to this sytem that i havent listed. 
 
-this systems use, its purpose is to create a: TDELFR (temporary dynamic express lane system for first responders). a TDELFR would be created by unified use and road connected with an active FREL (First Responder Express Lane) created by citizen drivers on the roads which utilize this system on the road, simply by merging to a lane (within two intersections after its activation. 
+Here I, Sean M. Jesky, propose a valid and effective means of decreasing response times for first responders to save lives on the order of 10,000 plus or minus.
 
-in addition; the FRLS (First Responder Lighting System), could blink with a yellow flashing light, in addition to the emergency lights to indicate to drivers that the first responder(s) just started their route, and once its done flashing yellow, it would indicate that the civilian drivers merging have no more time to merge before the next intersection. 
+But if we can decrease our nation’s first response time by just 3 minutes on average, we can bump up the amount of lives saved to 40,000-45,000 lives saved a year.
 
-after two intersections, every intersection after the first two passed by first, first responder, and if its a batch-dispaching (meaning a call such as - "all units in the area"), including the very last last first responder who radios in that they are responding (meaning everyone inbetween those two first and last Responders, and those also responding inbetween those, who are responding to the secene, should be able to connect their routes together, while the FR leading the tail-end closes the FRLS's circut behind the group, meanwhile, signaling to the intersections FRLS, before the next intersection they cross along their routes, to resume traffic signals behind them, along a given route) and the lane should be wide open (clear to the end of any traffic) to their emergency destination(s) for everyone else holding up the rear of the dispach group, or those responding to the dispatcher requesting "all units in the area".    
+~
 
-this state of driving continues until the system has been turned off behind first responders, after which civilian drivers are returned back to their original lane, after the First Responders have passed their intersection; by doing this together, we can enable our first responders to acheive faster source location, to destination location responce times. 
+This strategy occurs largely without any effort. The effect on traffic flow, if any, would be minimal—no more than a slight decimal change of the pre-existing conditions. My hope is that it actually reduces average travel times on roads where emergency response delays occur due to reasons like congestion, poor road design, or other traffic-related issues.
 
-this, done per the rules, will safely organize traffic and save lives with no real effort from civilians and pedestrians on the road; with no more effort added to them than traffic lighting rules regulally follwed, for both first responders, civilian drivers, and pedestrians. 
+~
 
-its with a small group effort this effect occurs - honestly, without basiclly any real effort for us all; we can all work towards saving the lives of others, and in record time too, enough to make a real difference as a country. no nothing, just - we the people.  
+This system creates a TDELFR (Temporary Dynamic Express Lane System for First Responders), activated by citizen drivers on designated roads who simply merge into a lane within two intersections after the system’s activation.
+
+~
+
+Additionally, the FRLS (First Responder Lighting System) would blink yellow alongside emergency lights to signal that the first responder just began their route. Once the yellow light stops flashing, it signals to drivers that their merging time has ended before the next intersection.
+
+~
+
+After two intersections, every subsequent intersection follows a similar process. In a batch-dispatching scenario (e.g., “all units in the area”), the first and last responders responding can connect their routes together, while the FR leading the tail-end closes the FRLS’s circuit behind the group, signaling to intersections behind them to resume regular traffic flow.
+
+~
+
+The lane remains open and clear (clear to the end of any traffic) for emergency responders heading to their destination(s), making room for others in the dispatch group or those responding to the call.
+
+~
+
+This system stays active until first responders have passed, after which civilian drivers return to their original lanes. By organizing traffic this way, we enable faster source-to-destination times for responders.
+
+~
+
+Done properly, this system will safely organize traffic and save lives, with no real effort from civilians and pedestrians—just the same basic traffic rules everyone already follows.
+
+~
+
+With minimal effort, this collective action allows us to save lives and make a real difference as a nation. It’s a simple, yet powerful, way to contribute—we the people.
 
 ___________________
 
@@ -153,20 +176,6 @@ btw im creating this for the police /EMS and/or the DOT to operate, not for some
 ![image](https://github.com/user-attachments/assets/6d998793-e94c-4be6-8231-cf1faf58177f)
 *finished flowchart... it think..
 its easier to improve upon your provious work, than it is to improve upon nothing, its why ill put anything down even if its bad because that can be made better than, nothing created yet.  .. idk im trying to show how what i do is a purely iterative process that anyone could do.*
-
---if rule number two is an issue:
-If the FRLS is on, civilians cannot use that lane, if it’s on, move(merge) from that lane into an inactive FRLS lane.  
-
---if first responders are stuck behind a set of vehicles (due to rule #2), disable FRLS infront (the lane of the First Responder being blocked by traffic - until FR (First Responder(s) has/have passed, the signal from that first/last FR's ID will tell the system, or operator to turn off the FRLS directly behind them (or when the last FR reachs the middle of the intersection), at which point civilian drivers resume traffic rules and lighting. 
-
---[!] if rule number two is applied at that intersection, and the FR is stuck behind the civilian vehicles in front of the FR - a special FRLS signal will trigger to signal to drivers must move until through intersection into an inactive FRLS lane to then allow the FR behind them to pass and if others are even further back it prevents collisions with FR utilizing the active lane.  
-to acheive this end; The FRLS turned that is turned off for rule #2 cannot be a lane which leads into an active FRLS lane, meaning the FR must turn into a lane which doesnt turn into the active lane, they must also merge into an inactive lane to prevent accidents with other FR that may be using the active lane. 
-  
-  --[!] the system should also be able to stay active with a simple push of a button once a route is active (basically, in this case, the route by the closest and the meadian distance FRs or machine known to choose best route for largest volume of FRs, and as long as it provides easy/quicker access for the largest number of FR's and enable them to reach quickest and/or easiest, while outliers, the lower amount of FR's will have to travrse these routes to a rule #2 intersection section of lanes - but the majority of FR's will be enabled by the FRLS to reach a EMR location - this would happen if larger assignment by operators or system is not able to be done, but 'closest to', is able to be done by an operator-admin in a fast time, possibly due to catostrphic event(s) *occurs where a large number of FR is required, as such, they are not assigned, this makes it so they all just have to make it to a rule #2 intersection that follows the route used by the first FR in the system, then the FR's, must merge from a nonactive lane to active lane.* 
-
-  --the last vehicle furthest from the destination and their ID hasnt been scanned yet by radio signal the relay waits, when signal is captured the signal is relayed back to the system operator which will then turn off the system behind the last FR assigined to location, if the batch dispach method is used below. 
-
-  [!] preassigned routes to ensure a large volume of FR's no matter where they are in a disaster is located by ensuring all main roads that connect to each-other and select side-roads all have a active FRLS plan in place, so when the big button is pressed and the worst happens, no thought is requred by the operator-admin more than knowing and acting. 
 
 ---
 
