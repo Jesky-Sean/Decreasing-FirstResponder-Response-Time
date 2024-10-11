@@ -64,7 +64,7 @@ ___________________
 
 # Table of Contents
 
-## Medical Emergencies or criminal situations Where Seconds/Minutes Matter
+## Medical Emergencies or criminal situations Where Seconds/Minutes Matter and might warrent the use of the TDFREL: 
 
 ## Table of Contents
 1. [Cardiac Arrest](#cardiac-arrest)
@@ -105,7 +105,7 @@ ___________________
 36. [Acute Liver Failure](#acute-liver-failure)
 37. [Hyperthermia](#hyperthermia) 
 
-## Criminal or Otherwise Emergencies Where Seconds/Minutes Matter# Table of Contents
+## Situations in which Criminal or Otherwise Emergencies Where Seconds/Minutes Matter warrent the use of the TDFREL: 
 
 - [Situations Requiring Immediate Response](#situations-requiring-immediate-response)
   - [Terrorist Attacks](#terrorist-attacks)
