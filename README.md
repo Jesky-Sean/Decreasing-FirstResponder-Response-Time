@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/84152ec6-51cf-4770-be4d-d5f79c7fc918)
 
->This Repo contains ReadMe along with my My Drafted-pre-release white paper of a system which its purpose is to create a temporary dynamic express lane which re-organizes traffic during an emergency response from first responders with the goal to save 10,000 to 45,000 lives a year when implemented (in just america)
+>This Repo contains a README.md file with a proposal of its use and contains various images of my work along the way, in addition, it also contains My Drafted-pre-released white paper of this system and its use. in this paper it explains this system and ita purpose - and in summary, it's job is to create a **temporary dynamic express lane for first responders in which which the systems main goal is to help redirect and re-organize traffic within their respective lanes - this system is activated during an emergency response from first responders with the goal to save 10,000 to 45,000 lives a year when implemented (in just america) with little or no effort from us, the citizens. 
 
 
 -
