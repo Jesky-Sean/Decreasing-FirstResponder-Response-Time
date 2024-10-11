@@ -1,7 +1,13 @@
 My Draft - and pre-release white paper.
 -
+written, designed, and invented by:
+![image](https://github.com/user-attachments/assets/ed23e75d-93af-4718-bbea-91f76aa99979)
+
+_______
 
 *<!> look how well i write when im not being affected by hate crimes and sleep deprived for months on end due to hate crimes. crazy. but when im at my worst is when people get the most ammo and its often belived. god i wish i had another chance..* and the managments hate group is right back at it. fuck this place and the managemnt for how ive been treated.* 
+
+__________
 
 I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future, and the first time i told anyone was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feeling and... sorry: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
     (A Best Solution. by, sean m jesky, as a word document). 
@@ -249,11 +255,11 @@ maybe TODO's:
 
 ---
    
-![image](https://github.com/user-attachments/assets/0a71dff6-4f47-40c5-a76e-96648b32ae8c)
+![image](https://github.com/user-attachments/assets/05c6bd8d-acc2-4684-a782-7ae497920257)
 *my personal logo design V1*
 
-![image](https://github.com/user-attachments/assets/060b696f-6f9e-488c-8e6b-ccf51abe76ba)
-*and V2 of my logo, i created and then had an AI do a few changes, to produce this: its al my shapes and lines, but upgraded and altered with a light AI touch.*
+![image](https://github.com/user-attachments/assets/84152ec6-51cf-4770-be4d-d5f79c7fc918)
+*and V2 of my logo, i created and then had an AI do a few changes, to produce this: its AI also, using my shapes and lines, but upgraded and altered with a light AI touch.*
 
 __________________
 *lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
