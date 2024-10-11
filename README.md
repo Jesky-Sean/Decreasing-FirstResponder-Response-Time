@@ -57,16 +57,14 @@ Done properly, this system will safely organize traffic and save lives, with no 
 
 With minimal effort, this collective action allows us to save lives and make a real difference as a nation. It’s a simple, yet powerful, way to contribute—we the people.
 
-___________________
+___________________ 
 
-*listings each, for potental uses by First Responders (dependent on situation obviously)*
---
+## Table of Contents for possible uses of the TDFREL. 
 
-# Table of Contents
-
-## Medical Emergencies or criminal situations Where Seconds/Minutes Matter and might warrent the use of the TDFREL: 
-
-## Table of Contents
+- [**Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others**](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
+  
+____ 
+- [**Medical Emergencies**](#medical-emergencies)
 1. [Cardiac Arrest](#cardiac-arrest)
 2. [Severe Bleeding (Hemorrhage)](#severe-bleeding-hemorrhage)
 3. [Stroke](#stroke)
@@ -107,7 +105,7 @@ ___________________
 
 ## Situations in which Criminal or Otherwise Emergencies Where Seconds/Minutes Matter warrent the use of the TDFREL: 
 
-- [Situations Requiring Immediate Response](#situations-requiring-immediate-response)
+- [**Criminal Situations Requiring Immediate Response**](#criminal-situations-requiring-immediate-response)
   - [Terrorist Attacks](#terrorist-attacks)
   - [Active Shooter Situations](#active-shooter-situations)
   - [Arson](#arson)
@@ -264,7 +262,7 @@ maybe TODO's:
 
 ____
 
-Medical Emergencies Where Seconds/Minutes Matter
+## Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others 
 
 # Critical Medical Conditions: Immediate Interventions Required
 
@@ -381,12 +379,9 @@ Hyperthermia occurs when the body overheats, potentially leading to heat-related
 
 _______
 
-
-## Criminal or Otherwise Emergencies Where Seconds/Minutes Matter
-
 Here’s the reordered list of criminal situations where seconds and minutes matter, along with explanations for why time is critical in each case:
 
-# Situations Requiring Immediate Response
+# Criminal Situations Requiring Immediate Response
 
 ## Terrorist Attacks  
 In cases of bombings, hostage situations, or other large-scale terror attacks, rapid response is essential to prevent further casualties and chaos. Early intervention can also stop secondary attacks and reduce mass panic.
