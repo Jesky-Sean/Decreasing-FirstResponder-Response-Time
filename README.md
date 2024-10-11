@@ -64,7 +64,8 @@ ___________________
 - [**Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others**](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
   
 ____ 
-- [**Medical Emergencies**](#medical-emergencies)
+- [**Critical Medical Conditions: Immediate Interventions Required**](#critical-medical-conditions-immediate-interventions-required)
+  
 1. [Cardiac Arrest](#cardiac-arrest)
 2. [Severe Bleeding (Hemorrhage)](#severe-bleeding-hemorrhage)
 3. [Stroke](#stroke)
@@ -101,11 +102,12 @@ ____
 34. [Hypoglycemia (Severe Low Blood Sugar)](#hypoglycemia-severe-low-blood-sugar)
 35. [Toxic Ingestion (e.g., Poisoning)](#toxic-ingestion-eg-poisoning)
 36. [Acute Liver Failure](#acute-liver-failure)
-37. [Hyperthermia](#hyperthermia) 
+37. [Hyperthermia](#hyperthermia)
 
-## Situations in which Criminal or Otherwise Emergencies Where Seconds/Minutes Matter warrent the use of the TDFREL: 
+________
 
 - [**Criminal Situations Requiring Immediate Response**](#criminal-situations-requiring-immediate-response)
+  
   - [Terrorist Attacks](#terrorist-attacks)
   - [Active Shooter Situations](#active-shooter-situations)
   - [Arson](#arson)
