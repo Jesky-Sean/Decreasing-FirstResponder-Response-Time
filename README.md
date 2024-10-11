@@ -264,8 +264,10 @@ maybe TODO's:
 
 ____
 
-## Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others 
+## Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others. 
 
+*where seconds and minutes matter, along with explanations for the reasons why time is or may becritical in each case presented for this list. this is not an exhaustive list which is presented*
+ _________
 # Critical Medical Conditions: Immediate Interventions Required
 
 ## Cardiac Arrest
@@ -380,8 +382,6 @@ Acute liver failure can result from various causes, leading to rapid deteriorati
 Hyperthermia occurs when the body overheats, potentially leading to heat-related illnesses. Immediate cooling measures are critical to prevent serious health consequences.
 
 _______
-
-Here’s the reordered list of criminal situations where seconds and minutes matter, along with explanations for why time is critical in each case:
 
 # Criminal Situations Requiring Immediate Response
 
