@@ -449,8 +449,22 @@ Severe abdominal pain could indicate appendicitis, which can lead to a ruptured 
 A perforated ulcer can lead to peritonitis and sepsis. Immediate surgical intervention is critical to repair the ulcer and prevent life-threatening complications.
 
 ## Severe Dehydration
+Severe dehydration can lead to organ failure and shock. Immediate rehydration with fluids is essential to restore bodily functions and prevent complications.
 
-and crimes where every second and minute also matter:
+## Heat Exhaustion
+Heat exhaustion can develop into heatstroke if not treated promptly. Quick cooling and hydration are necessary to prevent serious complications.
+
+## Hypoglycemia (Severe Low Blood Sugar)
+Severe hypoglycemia can lead to confusion, seizures, or loss of consciousness. Rapid administration of glucose is essential to restore blood sugar levels and prevent brain injury.
+
+## Toxic Ingestion (e.g., Poisoning)
+Toxic ingestion can lead to severe organ damage and life-threatening symptoms. Immediate medical attention is necessary to manage the effects of the toxin and prevent further harm.
+
+## Acute Liver Failure
+Acute liver failure can result from various causes, leading to rapid deterioration of liver function. Immediate medical intervention is necessary to address complications and potentially save the patient’s life.
+
+## Hyperthermia
+Hyperthermia occurs when the body overheats, potentially leading to heat-related illnesses. Immediate cooling measures are critical to prevent serious health consequences.
 
 _______
 
