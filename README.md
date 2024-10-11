@@ -18,29 +18,31 @@ I came up with this for someone, sorry again, seriously, i thought id impress he
 revised peoposal (spellcheck and rewritten.. well all the same words, in all its glory with some help)
 
 
-Here I, Sean M. Jesky, propose a valid and effective means of decreasing response times for first responders to save lives on the order of 10,000 plus or minus.
+Here I, Sean M. Jesky, propose a valid and effective means of decreasing response times for first responders to save lives on the order of 10,000/yr plus or minus.
 
-But if we can decrease our nation’s first response time by just 3 minutes on average, we can bump up the amount of lives saved to 40,000-45,000 lives saved a year.
-
-~
-
-This strategy occurs largely without any effort. The effect on traffic flow, if any, would be minimal—no more than a slight decimal change of the pre-existing conditions. My hope is that it actually reduces average travel times on roads where emergency response delays occur due to reasons like congestion, poor road design, or other traffic-related issues.
+But if we can decrease our nation’s first response time by just 3 minutes on average, we can bump up the amount of lives saved to 40,000-45,000 lives/yr saved.
 
 ~
 
-This system creates a TDELFR (Temporary Dynamic Express Lane System for First Responders), activated by citizen drivers on designated roads who simply merge into a lane within two intersections after the system’s activation.
+This strategy occurs largely without any effort. The effect on traffic flow, if any, would be minimal, to no more than a slight decimal change of the pre-existing conditions. My hope is that it actually reduces average travel times on roads where emergency response delays occur due to reasons like congestion, poor road design, or other traffic and other - related issues.
 
 ~
 
-Additionally, the FRLS (First Responder Lighting System) would blink yellow alongside emergency lights to signal that the first responder just began their route. Once the yellow light stops flashing, it signals to drivers that their merging time has ended before the next intersection.
+This system creates a TDELFR (Temporary Dynamic Express Lane System for First Responders), activated by first responders and maintained through citizen drivers on designated roads along routes with an active system - who simply are required to merge into a lane within two intersections after the system’s activation in which the system is not active whichever lane they choose; unless all FRLS within a intersections lane are active, in which case, remain still until the system is inactive and resume normal traffic lighting rules. 
 
 ~
 
-After two intersections, every subsequent intersection follows a similar process. In a batch-dispatching scenario (e.g., “all units in the area”), the first and last responders responding can connect their routes together, while the FR leading the tail-end closes the FRLS’s circuit behind the group, signaling to intersections behind them to resume regular traffic flow.
+Additionally, the FRLS (First Responder Lighting System) would blink yellow alongside emergency lights to signal that the first responder just began their route, to civilians. Once the yellow light stops flashing, it signals to drivers that their merging time has near-ended, and be sure to do so before the next intersection.
 
 ~
 
-The lane remains open and clear (clear to the end of any traffic) for emergency responders heading to their destination(s), making room for others in the dispatch group or those responding to the call.
+In a batch-dispatching scenario (e.g., “all units in the area”), the first and last responders responding can connect their routes together, while the FR leading the tail-end closes the FRLS’s circuit behind the group, signaling to intersections behind them to resume regular traffic flow. 
+
+meanwhile the FR's inbetween, just need to find an intersection that leads them to the active FRLS. 
+
+~
+
+This ensures that the lane remains open and clear (clear to the end of any traffic) for emergency responders within that batch responce - heading to their destination(s), whilst making room for others in the dispatch group, or those responding to the call.
 
 ~
 
@@ -48,7 +50,7 @@ This system stays active until first responders have passed, after which civilia
 
 ~
 
-Done properly, this system will safely organize traffic and save lives, with no real effort from civilians and pedestrians—just the same basic traffic rules everyone already follows.
+Done properly, this system will safely organize traffic and save lives, with no real effort and/or time from civilians and pedestrians, just the same basic traffic rules everyone already follows, with equally simple and very few rules to add. 
 
 ~
 
