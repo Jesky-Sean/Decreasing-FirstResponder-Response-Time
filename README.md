@@ -1,4 +1,7 @@
-still hasnt stopped.  fuck this world.  not one person helped me but they have a fucking group to help them.  fuck this world and you all in it. whatever happens next is from hurting me every fucking day. 
+anyone could have fucking stoped them and helped me. if my life has no value then my belifs hold no value, then i can do anything to stop them and it also wont matter. ive never mattered to anyone so thanks for pushing me past the point of no return. fuck you all.  
+
+
+still hasnt stopped. fuck this world.  not one person helped me but they have a fucking group to help them.  fuck this world and you all in it. whatever happens next is from hurting me every fucking day. 
 
 
 still hasnt stopped.  im doing this all for a country that hates me for no pay and no recognition, and no other gains, its just for a country that hates my guts to allow this for so long. 
