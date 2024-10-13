@@ -12,6 +12,8 @@ __________
 
 inhumane treatment from the landlord and the group that updates ^
 
+see above is what i can only describe as fractured thinking that occurs during such inhumaine treatment and abuses that i receive from the env. in which my landlords friends engage in this treatment daily and on a minute by minute basis. they do this because they are cowards and always ran from fights and worse, they try so hard to get others to do their dirty work, and if you knew youd laugh in their face and call them the cowards they are. 
+
 ___________
 
 ![image](https://github.com/user-attachments/assets/84152ec6-51cf-4770-be4d-d5f79c7fc918)
