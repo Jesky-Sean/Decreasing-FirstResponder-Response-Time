@@ -1,3 +1,6 @@
+still hasnt stopped.  fuck this world.  not one person helped me but they have a fucking group to help them.  fuck this world and you all in it. whatever happens next is from hurting me every fucking day. 
+
+
 still hasnt stopped.  im doing this all for a country that hates me for no pay and no recognition, and no other gains, its just for a country that hates my guts to allow this for so long. 
 
 24/7 hate crimes from downstairs and the landlord (her due to neg. and aiding them, and telling the ones commiting hate crimes, to come by and check on themselves because she "trusts them with her life") along with her workers for around the appt.s. daily. nonstop. nowhere to go anymore to heal. nonone gives a fuck to stop these people who, instead of making money - or even trying ... anything, they just want attention, and to blame everyone else, and draw the attention of the law so they get attention from their tiny group who is only capable of nothing and are cowards in every way. wont face me but are the type to slap and run , instead of talking, they run to their group to make a roomer up and they spread it, been done a lot by them. i cant wait till the world destroys them soon.                 
