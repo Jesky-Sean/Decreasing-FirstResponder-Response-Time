@@ -173,7 +173,6 @@ ________
   - [Domestic Violence](#domestic-violence)
   - [Armed Robbery](#armed-robbery)
   - [Home Invasions](#home-invasions)
-  - [Carjackings](#carjackings)
   - [Assaults (Physical)](#assaults-physical)
   - [Domestic Abuse (Escalating)](#domestic-abuse-escalating)
   - [Stalking with Threats of Violence](#stalking-with-threats-of-violence)
@@ -183,16 +182,11 @@ ________
   - [Child Abductions](#child-abductions)
   - [Police Chases](#police-chases)
   - [Threatening Behavior with Weapons](#threatening-behavior-with-weapons)
-  - [Vandalism (Escalating to Property Damage)](#vandalism-escalating-to-property-damage)
   - [Burglary](#burglary)
   - [Prison Breaks](#prison-breaks)
-  - [Ransom Situations](#ransom-situations)
   - [False Imprisonment](#false-imprisonment)
-  - [Retail Theft (Escalating to Violence)](#retail-theft-escalating-to-violence)
-  - [Violence in Mental Health Crisis Situations](#violence-in-mental-health-crisis-situations)
   - [Threats of Violence](#threats-of-violence)
   - [Exploitation of Vulnerable Individuals](#exploitation-of-vulnerable-individuals)
-  - [Identity Theft (Escalating to Threats)](#identity-theft-escalating-to-threats)
   - [Road Rage Incidents](#road-rage-incidents)
   - [Police Officer Involved Shootings](#police-officer-involved-shootings)
   - [Armed Carjacking](#armed-carjacking)
@@ -479,9 +473,6 @@ Armed robbery involves immediate danger to bystanders or employees. Quick interv
 ## Home Invasions  
 These situations can rapidly escalate to physical violence or murder if the homeowner confronts the intruder. Immediate police response is necessary to protect the occupants and catch the invaders.
 
-## Carjackings  
-Carjackings can turn violent quickly, especially if the victim resists or has passengers inside the vehicle. Fast police response is crucial to prevent harm and apprehend the perpetrator before they escape.
-
 ## Assaults (Physical)  
 Assaults can lead to severe injuries or death within minutes if left unchecked. Quick intervention ensures the victim receives medical attention and stops the assailant from causing further harm.
 
@@ -509,26 +500,14 @@ High-speed chases can lead to collisions, injuries, or fatalities. The sooner po
 ## Threatening Behavior with Weapons  
 When someone is brandishing a weapon, they are moments away from causing potentially fatal harm. Immediate intervention helps disarm the individual and protect potential victims.
 
-## Vandalism (Escalating to Property Damage)  
-Vandalism can quickly escalate to extensive property damage or arson if not stopped. Early police response reduces the risk of more serious crimes and sends a message of control and deterrence.
-
 ## Burglary  
 Burglars may turn violent if confronted by homeowners or law enforcement. Swift action helps prevent escalation and ensures that the perpetrator is apprehended before fleeing or causing harm.
 
 ## Prison Breaks  
 Escaped prisoners are often dangerous individuals, and the longer they remain free, the more likely they are to commit further crimes. Immediate capture reduces the risk of violence and protects the public.
 
-## Ransom Situations  
-Time-sensitive negotiations are often involved in ransom scenarios, where the victim’s safety hangs in the balance. Quick action by law enforcement can help recover the hostage before the situation escalates.
-
 ## False Imprisonment  
 False imprisonment can escalate into physical violence if the captor feels threatened or cornered. Immediate intervention helps secure the release of the victim and prevents further escalation.
-
-## Retail Theft (Escalating to Violence)  
-Retail theft can escalate to violent confrontations if shoplifters are caught or confronted. Swift response from security or law enforcement prevents injury to staff and other customers.
-
-## Violence in Mental Health Crisis Situations  
-Mental health crises can rapidly escalate into violent outbursts. Immediate intervention by trained personnel ensures the safety of the individual in crisis and bystanders while de-escalating the situation.
 
 ## Threats of Violence  
 When credible threats of violence are made, fast action prevents the individual from carrying them out. It also reassures the target of the threat that they are being protected.
