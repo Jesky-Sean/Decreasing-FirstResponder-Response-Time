@@ -5,6 +5,9 @@ actual content below
 
  >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
 
+fuck you gundy. because of your friends actions - still cant sleep - still cant use the bathroom. i hope you fucking die.  fuck you all for doing this your worthless and ugly as fuck and its more than you could ever deserve. fuck you. over a year of torture - you are a depraved cunt who needs to fucking die. 
+
+
 fucking losers are back to every same tactic as before. fuck everyone involved, your fucking nothing next to me, or anyone i know. your just nothing and thats your life and its always going to be your life. 
 
 my spelling is so bad when this stuff is occuring. its fascinating that its so distorted from my actual writing .... oh ya and i dont use spell check when thinking and writing and creating as it distorts the way your mind was thinking through an idea from start to finish. prob. having more exp. with inventing and creating than most people i can say that this effect, though little, can distort your path to an idea, each squiggly line is a distraction from your thoughts. like hate crimes. 
