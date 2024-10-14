@@ -6,6 +6,8 @@ actual content below
  >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
 
 
+no one is going to remember any of you in the future - your dying for attention and you wont get it from the media - no one - everyone will forget you all - they will remember me - and what i went through - they will remember the ones who tried their hardest to help without a thanks, but you all will be forgotten and lost in the overwhelming shadow i cast over you and your worthless, hateful, spiteful, insignificant lives. no one will know of you, we know this is what you want - to be known - but it wont happen - you will be forgotten. 
+
 every single ounce of me hopes you fucking die. fuck you and your cunt friends. fuck you all for doing this to me each and every day. fuck you and your hate and fuck your worthless life. you all are fucking cowards - worthless, scared for your fucking lives, gossping cunts attacking me because i turned down your advances - fuck you. 
 
 fuck you.  i cant wait to see the universe take care of you. fuck you.  a death is too good for you. fuck you you fucking torturous evil landlord and her fucking friends. 
