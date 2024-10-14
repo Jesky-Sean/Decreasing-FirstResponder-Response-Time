@@ -4,38 +4,7 @@ actual content below
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
 3. [Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
 
-
-fuck you fucking loser bitch. i cant wait for you to fucking die 
-
-cant wait for you to fucking die gundy. fuck you and your fucking group. 
-
  >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
-
-
-i cant wait for you to fucking die gundy. fuck you and your fucking friends for this shit. the UNs exact definition of torture and our definition of hate crimes. i hope you loose everything like youve done already to me. fuck you and your group. 
-
-nothing is going to stop gundys hate group from torturing me.  they are emboldend by the fact that their friend is the landlord as they use to say, fucking week people who are so fucking incapabe of anything, but want to be rec. for something. if you all lived in the hood youd be a known bitch for not fighting, and running from fights opportunist losers who need others to do anything, who need other to do all their work. your tiny little hate group is so fucking below an ants shadow.  
-
-no one is going to remember any of you in the future - your dying for attention and you wont get it from the media - no one - everyone will forget you all - they will remember me - and what i went through - they will remember the ones who tried their hardest to help without a thanks, but you all will be forgotten and lost in the overwhelming shadow i cast over you and your worthless, hateful, spiteful, insignificant lives. no one will know of you, we know this is what you want - to be known - but it wont happen - you will be forgotten. 
-
-every single ounce of me hopes you fucking die. fuck you and your cunt friends. fuck you all for doing this to me each and every day. fuck you and your hate and fuck your worthless life. you all are fucking cowards - worthless, scared for your fucking lives, gossping cunts attacking me because i turned down your advances - fuck you. 
-
-fuck you.  i cant wait to see the universe take care of you. fuck you.  a death is too good for you. fuck you you fucking torturous evil landlord and her fucking friends. 
-
-fuck you gundy. because of your friends actions - still cant sleep - still cant use the bathroom. i hope you fucking die.  fuck you all for doing this your worthless and ugly as fuck and its more than you could ever deserve. fuck you. over a year of torture - you are a depraved cunt who needs to fucking die. 
-
-
-fucking losers are back to every same tactic as before. fuck everyone involved, your fucking nothing next to me, or anyone i know. your just nothing and thats your life and its always going to be your life. 
-
-my spelling is so bad when this stuff is occuring. its fascinating that its so distorted from my actual writing .... oh ya and i dont use spell check when thinking and writing and creating as it distorts the way your mind was thinking through an idea from start to finish. prob. having more exp. with inventing and creating than most people i can say that this effect, though little, can distort your path to an idea, each squiggly line is a distraction from your thoughts. like hate crimes. 
-
-anyone could have fucking stoped them and helped me. if my life has no value then my belifs hold no value, then i can do anything to stop them and it also wont matter. ive never mattered to anyone so thanks for pushing me past the point of no return. fuck you all.  
-
-
-still hasnt stopped. fuck this world.  not one person helped me but they have a fucking group to help them.  fuck this world and you all in it. whatever happens next is from hurting me every fucking day. 
-
-
-still hasnt stopped.  im doing this all for a country that hates me for no pay and no recognition, and no other gains, its just for a country that hates my guts to allow this for so long. 
 
 24/7 hate crimes from downstairs and the landlord (her due to neg. and aiding them, and telling the ones commiting hate crimes, to come by and check on themselves because she "trusts them with her life") along with her workers for around the appt.s. daily. nonstop. nowhere to go anymore to heal. nonone gives a fuck to stop these people who, instead of making money - or even trying ... anything, they just want attention, and to blame everyone else, and draw the attention of the law so they get attention from their tiny group who is only capable of nothing and are cowards in every way. wont face me but are the type to slap and run , instead of talking, they run to their group to make a roomer up and they spread it, been done a lot by them. i cant wait till the world destroys them soon.                 
 
