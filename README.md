@@ -2,6 +2,10 @@
 actual content below
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
+3. [Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
+
+
+
 
  >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
 
@@ -108,10 +112,9 @@ With minimal effort, this collective action allows us to save lives and make a r
 
 ___________________ 
 
-## Table of Contents for possible uses of the TDFREL. 
+## Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others
 
-- [**Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others**](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
-  
+## Table of Contents for possible uses of the TDFREL.
 ____ 
 - [**Critical Medical Conditions: Immediate Interventions Required**](#critical-medical-conditions-immediate-interventions-required)
   
