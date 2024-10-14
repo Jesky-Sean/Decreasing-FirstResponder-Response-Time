@@ -6,6 +6,8 @@ actual content below
 
  >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
 
+i hope by you idiots going after me, you know your place right? below me. 
+
 24/7 hate crimes from downstairs and the landlord (her due to neg. and aiding them, and telling the ones commiting hate crimes, to come by and check on themselves because she "trusts them with her life") along with her workers for around the appt.s. daily. nonstop. nowhere to go anymore to heal. nonone gives a fuck to stop these people who, instead of making money - or even trying ... anything, they just want attention, and to blame everyone else, and draw the attention of the law so they get attention from their tiny group who is only capable of nothing and are cowards in every way. wont face me but are the type to slap and run , instead of talking, they run to their group to make a roomer up and they spread it, been done a lot by them. i cant wait till the world destroys them soon.                 
 
 __________
