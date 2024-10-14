@@ -1,3 +1,6 @@
+
+my spelling is so bad when this stuff is occuring. its fascinating that its so distorted from my actual writing .... oh ya and i dont use spell check when thinking and writing and creating as it distorts the way your mind was thinking through an idea from start to finish. prob. having more exp. with inventing and creating than most people i can say that this effect, though little, can distort your path to an idea, each squiggly line is a distraction from your thoughts. like hate crimes. 
+
 anyone could have fucking stoped them and helped me. if my life has no value then my belifs hold no value, then i can do anything to stop them and it also wont matter. ive never mattered to anyone so thanks for pushing me past the point of no return. fuck you all.  
 
 
