@@ -5,6 +5,8 @@ actual content below
 3. [Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
 
 
+fuck you fucking loser bitch. i cant wait for you to fucking die 
+
 cant wait for you to fucking die gundy. fuck you and your fucking group. 
 
  >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
