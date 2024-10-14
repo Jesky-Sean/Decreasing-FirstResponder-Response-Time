@@ -12,6 +12,8 @@ cant wait for you to fucking die gundy. fuck you and your fucking group.
  >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
 
 
+i cant wait for you to fucking die gundy. fuck you and your fucking friends for this shit. the UNs exact definition of torture and our definition of hate crimes. i hope you loose everything like youve done already to me. fuck you and your group. 
+
 nothing is going to stop gundys hate group from torturing me.  they are emboldend by the fact that their friend is the landlord as they use to say, fucking week people who are so fucking incapabe of anything, but want to be rec. for something. if you all lived in the hood youd be a known bitch for not fighting, and running from fights opportunist losers who need others to do anything, who need other to do all their work. your tiny little hate group is so fucking below an ants shadow.  
 
 no one is going to remember any of you in the future - your dying for attention and you wont get it from the media - no one - everyone will forget you all - they will remember me - and what i went through - they will remember the ones who tried their hardest to help without a thanks, but you all will be forgotten and lost in the overwhelming shadow i cast over you and your worthless, hateful, spiteful, insignificant lives. no one will know of you, we know this is what you want - to be known - but it wont happen - you will be forgotten. 
