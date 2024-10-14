@@ -5,6 +5,9 @@ actual content below
 
  >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
 
+
+fuck you.  i cant wait to see the universe take care of you. fuck you.  a death is too good for you. fuck you you fucking torturous evil landlord and her fucking friends. 
+
 fuck you gundy. because of your friends actions - still cant sleep - still cant use the bathroom. i hope you fucking die.  fuck you all for doing this your worthless and ugly as fuck and its more than you could ever deserve. fuck you. over a year of torture - you are a depraved cunt who needs to fucking die. 
 
 
