@@ -26,6 +26,7 @@ ___________
 ![image](https://github.com/user-attachments/assets/84152ec6-51cf-4770-be4d-d5f79c7fc918)
 
 >This Repo contains a README.md file with a proposal of its use and contains various images of my work along the way, in addition, it also contains My Drafted-pre-released white paper of this system and its use.
+[A Best Solution. by, sean m jesky (docx)](https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx) 
 >>In this paper it explains this system and ita purpose - and in summary, it's job is to create a *temporary dynamic express lane for first responders*! When a First Responder Lighting System route is activated, **the main purpose of its design, and functionality** is to help redirect, and re-organize traffic within their respective lanes
 >>> this system is **activated during an emergency response only** from first responders with *the goal to save 10,000 lives/yr [with a one minute reduction in response times], to a potential mind blowing 45,000 lives/yr [estimated with a three minute reduction in response times]* when implemented (in just america!!) with **little or no effort from us, the citizens.**
 
@@ -40,8 +41,7 @@ _______
 
 __________
 
-I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future, and the first time i told anyone was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feeling and... sorry: (https://raw.githubusercontent.com/Jesky-Sean/Decreasing-FirstResponder-Response-Time/refs/heads/main/ABestSolution.docx)
-    (A Best Solution. by, sean m jesky, as a word document). 
+I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future, and the first time i told anyone was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feeling and... sorry: 
 
 -----
 -----
