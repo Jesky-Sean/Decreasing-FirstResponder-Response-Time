@@ -4,23 +4,6 @@ actual content below
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
 3. [Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
 
- >>> <below, until the above links location is where i cant really help my self during what they are doing, and i have to write because of it, no one can understand or will try i think, but the effects of their treatment is indistinguishable from the feeling of constantly dying.>
-
-someone needs to let me know why this group is so mad at me and their life - its your fault you are angry, you arw responcable for your own emotions - actions - thoughts - and feeling (unless you are being tortured and harrassed by morons like these people when i get home) who hate me because?? i dont follow politics, i dont watch TV, i dont support any group. so i wonder. why are you such a bitch towards me, you wont even walk up to me because you are so fucking scared of me, and your life is shit because you listen to whatever your friends or news reports you share tell you to believe, none of you are capable of independent thought and your so mentally deranged that your life and your tiny group, will be forgotten one day soon.  ) 
-
-i hope by you idiots going after me, you know your place right? below me. 
-
-24/7 hate crimes from downstairs and the landlord (her due to neg. and aiding them, and telling the ones commiting hate crimes, to come by and check on themselves because she "trusts them with her life") along with her workers for around the appt.s. daily. nonstop. nowhere to go anymore to heal. nonone gives a fuck to stop these people who, instead of making money - or even trying ... anything, they just want attention, and to blame everyone else, and draw the attention of the law so they get attention from their tiny group who is only capable of nothing and are cowards in every way. wont face me but are the type to slap and run , instead of talking, they run to their group to make a roomer up and they spread it, been done a lot by them. i cant wait till the world destroys them soon.                 
-
-__________
-
-inhumane treatment from the landlord and the group that updates ^
-
-see above is what i can only describe as fractured thinking that occurs during such inhumaine treatment and abuses that i receive from the env. in which my landlords friends engage in this treatment daily and on a minute by minute basis. they do this because they are cowards and always ran from fights and worse, they try so hard to get others to do their dirty work, and if you knew youd laugh in their face and call them the cowards they are. 
-
-___________
-
-
 ## Introduction
 
 ![image](https://github.com/user-attachments/assets/84152ec6-51cf-4770-be4d-d5f79c7fc918)
