@@ -24,7 +24,7 @@ _______
 
 __________
 
-I came up with this for someone, sorry again, seriously, i thought id impress her by just getting a nobel prize for her and our future, and the first time i told anyone was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feeling and... sorry: 
+I came up with this for someone, sorry' a'in, seriously, stupidly, i thought id be able impress her by simply just getting a nobel prize for her, and our (what i wished) future, and the first time i told anyone abouy this idea intrestingly was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feelings and... sorry: 
 
 -----
 -----
