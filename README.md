@@ -78,103 +78,9 @@ With minimal effort, this collective action allows us to save lives and make a r
 please note: 
 
 I need to speak to actual first responders, not the internet, but actual people. i make a few assumptions like, connecting their routes, is based on my observations on the frequency in which i watched FRs take the same route as the one before them, or if not, at some point they will use the same route - it is the goal of the author (thats me, ive always wanted to write that!) to ensure that this system works as an actual express lane to the n'th degree as in a temporary German Audubon, my fears are also as such - people who wait till the very end of a merging lane - instead of merging as soon as the chance is there - I imagine a similar situation could occur in which it could cause issues with the system operating - which is why i think, not only flashing yellow lights within its flashing red white and blue set, but giving two such intersections, or one depending on its length, and traffic density and other determining factors. 
+
 ___________________ 
 
-## Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others
-
-## Table of Contents for possible uses of the TDFREL.
-____ 
-- [**Critical Medical Conditions: Immediate Interventions Required**](#critical-medical-conditions-immediate-interventions-required)
-  
-# Table of Contents
-
-- [Cardiac Arrest](#cardiac-arrest)
-- [Severe Bleeding (Hemorrhage)](#severe-bleeding-hemorrhage)
-- [Stroke](#stroke)
-- [Heart Attack (Myocardial Infarction)](#heart-attack-myocardial-infarction)
-- [Overdose](#overdose)
-- [Anaphylaxis (Severe Allergic Reactions)](#anaphylaxis-severe-allergic-reactions)
-- [Aneurysm Rupture](#aneurysm-rupture)
-- [Pulmonary Embolism](#pulmonary-embolism)
-- [Severe Trauma from Vehicle Accidents](#severe-trauma-from-vehicle-accidents)
-- [Traumatic Brain Injury (TBI)](#traumatic-brain-injury-tbi)
-- [Drowning/Near Drowning](#drowningnear-drowning)
-- [Shootings/Gunshot Wounds](#shootingsgunshot-wounds)
-- [Asthma Attacks](#asthma-attacks)
-- [Electrical Injuries](#electrical-injuries)
-- [Compartment Syndrome](#compartment-syndrome)
-- [Ectopic Pregnancy](#ectopic-pregnancy)
-- [Ruptured Spleen](#ruptured-spleen)
-- [Spinal Cord Injuries](#spinal-cord-injuries)
-- [Sepsis/Septic Shock](#sepsisseptic-shock)
-- [Hypothermia](#hypothermia)
-- [Heatstroke](#heatstroke)
-- [Diabetic Ketoacidosis (DKA)](#diabetic-ketoacidosis-dka)
-- [Acute Renal Failure](#acute-renal-failure)
-- [Intracranial Hemorrhage](#intracranial-hemorrhage)
-- [Severe Burns](#severe-burns)
-- [Choking](#choking)
-- [Blunt Force Trauma](#blunt-force-trauma)
-- [Acute Respiratory Distress Syndrome (ARDS)](#acute-respiratory-distress-syndrome-ards)
-- [Cardiac Tamponade](#cardiac-tamponade)
-- [Severe Abdominal Pain (Possible Appendicitis)](#severe-abdominal-pain-possible-appendicitis)
-- [Perforated Ulcer](#perforated-ulcer)
-- [Severe Dehydration](#severe-dehydration)
-- [Heat Exhaustion](#heat-exhaustion)
-- [Hypoglycemia (Severe Low Blood Sugar)](#hypoglycemia-severe-low-blood-sugar)
-- [Toxic Ingestion (e.g., Poisoning)](#toxic-ingestion-e-poisoning)
-- [Acute Liver Failure](#acute-liver-failure)
-- [Hyperthermia](#hyperthermia)
-
-  
-________
-
-
-- [**Criminal Situations Requiring Immediate Response**](#criminal-situations-requiring-immediate-response)
-  
-  - [Terrorist Attacks](#terrorist-attacks)
-  - [Active Shooter Situations](#active-shooter-situations)
-  - [Arson](#arson)
-  - [Sexual Assault and/or Other, Including Rape, Sexual Harassment, Child Molestation, Sexual Exploitation, and Sexual Coercion](#sexual-assault-andor-other-including-rape-sexual-harassment-child-molestation-sexual-exploitation-and-sexual-coercion)
-  - [Kidnapping](#kidnapping)
-  - [Hate Crimes](#hate-crimes)
-  - [Domestic Violence](#domestic-violence)
-  - [Armed Robbery](#armed-robbery)
-  - [Home Invasions](#home-invasions)
-  - [Assaults (Physical)](#assaults-physical)
-  - [Domestic Abuse (Escalating)](#domestic-abuse-escalating)
-  - [Stalking with Threats of Violence](#stalking-with-threats-of-violence)
-  - [Bomb Threats/Explosive Devices](#bomb-threatsexplosive-devices)
-  - [Hostage Situations](#hostage-situations)
-  - [Suicide Attempts (Active)](#suicide-attempts-active)
-  - [Child Abductions](#child-abductions)
-  - [Police Chases](#police-chases)
-  - [Threatening Behavior with Weapons](#threatening-behavior-with-weapons)
-  - [Burglary](#burglary)
-  - [Prison Breaks](#prison-breaks)
-  - [False Imprisonment](#false-imprisonment)
-  - [Threats of Violence](#threats-of-violence)
-  - [Exploitation of Vulnerable Individuals](#exploitation-of-vulnerable-individuals)
-  - [Road Rage Incidents](#road-rage-incidents)
-  - [Police Officer Involved Shootings](#police-officer-involved-shootings)
-  - [Armed Carjacking](#armed-carjacking)
-  - [Child Abuse/Neglect (Critical)](#child-abuseneglect-critical)
- _______
- 
--  [**Other**](#other)
- 
-  - [Chemical Spills and Hazardous Material Releases](#chemical-spills-and-hazardous-material-releases)
-  - [Nuclear or Radiological Incidents](#nuclear-or-radiological-incidents)
-  - [Public Health Emergencies (e.g., Infectious Disease Outbreaks)](#public-health-emergencies-eg-infectious-disease-outbreaks)
-  - [Natural Disasters (e.g.
-  Earthquakes, Floods, Wildfires, Hurricanes, Tornadoes)](#natural-disasters-eg-earthquakes-floods-wildfires-hurricanes-tornadoes)
-  
-__________________
-
-*lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
-
-> see bottom of the "readme.md for the AI's explanation on how these two lists (of priorty from severe to less severe), and how items are affected by first responders responce time of such issues.
- 
 ![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
     *this image shows basic rules of how it would work in action on a whiteboard. (corrected, again, again, again - and added extra notes and better look)*
 ![image](https://github.com/user-attachments/assets/6d998793-e94c-4be6-8231-cf1faf58177f)
@@ -290,6 +196,105 @@ maybe TODO's:
    <!> no one will be able to say they never helped the cops, presidents, feds, or their fellow man/or women, to me just for that laugh, it would be worth it - that would be really funny right? we all do something good, for the first time in society we all all doing something good for everyone else with no cost or payment to the helpers and helpies, thats some real hippy stuff 😂.    
    
     (never for VIPs please!... i mean, just me so i can see how it works....). 
+
+-----
+
+## Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others
+
+## Table of Contents for possible uses of the TDFREL.
+____ 
+- [**Critical Medical Conditions: Immediate Interventions Required**](#critical-medical-conditions-immediate-interventions-required)
+  
+# Table of Contents
+
+- [Cardiac Arrest](#cardiac-arrest)
+- [Severe Bleeding (Hemorrhage)](#severe-bleeding-hemorrhage)
+- [Stroke](#stroke)
+- [Heart Attack (Myocardial Infarction)](#heart-attack-myocardial-infarction)
+- [Overdose](#overdose)
+- [Anaphylaxis (Severe Allergic Reactions)](#anaphylaxis-severe-allergic-reactions)
+- [Aneurysm Rupture](#aneurysm-rupture)
+- [Pulmonary Embolism](#pulmonary-embolism)
+- [Severe Trauma from Vehicle Accidents](#severe-trauma-from-vehicle-accidents)
+- [Traumatic Brain Injury (TBI)](#traumatic-brain-injury-tbi)
+- [Drowning/Near Drowning](#drowningnear-drowning)
+- [Shootings/Gunshot Wounds](#shootingsgunshot-wounds)
+- [Asthma Attacks](#asthma-attacks)
+- [Electrical Injuries](#electrical-injuries)
+- [Compartment Syndrome](#compartment-syndrome)
+- [Ectopic Pregnancy](#ectopic-pregnancy)
+- [Ruptured Spleen](#ruptured-spleen)
+- [Spinal Cord Injuries](#spinal-cord-injuries)
+- [Sepsis/Septic Shock](#sepsisseptic-shock)
+- [Hypothermia](#hypothermia)
+- [Heatstroke](#heatstroke)
+- [Diabetic Ketoacidosis (DKA)](#diabetic-ketoacidosis-dka)
+- [Acute Renal Failure](#acute-renal-failure)
+- [Intracranial Hemorrhage](#intracranial-hemorrhage)
+- [Severe Burns](#severe-burns)
+- [Choking](#choking)
+- [Blunt Force Trauma](#blunt-force-trauma)
+- [Acute Respiratory Distress Syndrome (ARDS)](#acute-respiratory-distress-syndrome-ards)
+- [Cardiac Tamponade](#cardiac-tamponade)
+- [Severe Abdominal Pain (Possible Appendicitis)](#severe-abdominal-pain-possible-appendicitis)
+- [Perforated Ulcer](#perforated-ulcer)
+- [Severe Dehydration](#severe-dehydration)
+- [Heat Exhaustion](#heat-exhaustion)
+- [Hypoglycemia (Severe Low Blood Sugar)](#hypoglycemia-severe-low-blood-sugar)
+- [Toxic Ingestion (e.g., Poisoning)](#toxic-ingestion-e-poisoning)
+- [Acute Liver Failure](#acute-liver-failure)
+- [Hyperthermia](#hyperthermia)
+
+  
+________
+
+
+- [**Criminal Situations Requiring Immediate Response**](#criminal-situations-requiring-immediate-response)
+  
+  - [Terrorist Attacks](#terrorist-attacks)
+  - [Active Shooter Situations](#active-shooter-situations)
+  - [Arson](#arson)
+  - [Sexual Assault and/or Other, Including Rape, Sexual Harassment, Child Molestation, Sexual Exploitation, and Sexual Coercion](#sexual-assault-andor-other-including-rape-sexual-harassment-child-molestation-sexual-exploitation-and-sexual-coercion)
+  - [Kidnapping](#kidnapping)
+  - [Hate Crimes](#hate-crimes)
+  - [Domestic Violence](#domestic-violence)
+  - [Armed Robbery](#armed-robbery)
+  - [Home Invasions](#home-invasions)
+  - [Assaults (Physical)](#assaults-physical)
+  - [Domestic Abuse (Escalating)](#domestic-abuse-escalating)
+  - [Stalking with Threats of Violence](#stalking-with-threats-of-violence)
+  - [Bomb Threats/Explosive Devices](#bomb-threatsexplosive-devices)
+  - [Hostage Situations](#hostage-situations)
+  - [Suicide Attempts (Active)](#suicide-attempts-active)
+  - [Child Abductions](#child-abductions)
+  - [Police Chases](#police-chases)
+  - [Threatening Behavior with Weapons](#threatening-behavior-with-weapons)
+  - [Burglary](#burglary)
+  - [Prison Breaks](#prison-breaks)
+  - [False Imprisonment](#false-imprisonment)
+  - [Threats of Violence](#threats-of-violence)
+  - [Exploitation of Vulnerable Individuals](#exploitation-of-vulnerable-individuals)
+  - [Road Rage Incidents](#road-rage-incidents)
+  - [Police Officer Involved Shootings](#police-officer-involved-shootings)
+  - [Armed Carjacking](#armed-carjacking)
+  - [Child Abuse/Neglect (Critical)](#child-abuseneglect-critical)
+ _______
+ 
+-  [**Other**](#other)
+ 
+  - [Chemical Spills and Hazardous Material Releases](#chemical-spills-and-hazardous-material-releases)
+  - [Nuclear or Radiological Incidents](#nuclear-or-radiological-incidents)
+  - [Public Health Emergencies (e.g., Infectious Disease Outbreaks)](#public-health-emergencies-eg-infectious-disease-outbreaks)
+  - [Natural Disasters (e.g.
+  Earthquakes, Floods, Wildfires, Hurricanes, Tornadoes)](#natural-disasters-eg-earthquakes-floods-wildfires-hurricanes-tornadoes)
+  
+__________________
+
+*lists-info of medical injuries, and/or criminal activity(s) that may warrent the use of the TDFREL*  
+
+> see bottom of the "readme.md for the AI's explanation on how these two lists (of priorty from severe to less severe), and how items are affected by first responders responce time of such issues.
+ 
+
 
 ____
 
