@@ -72,6 +72,12 @@ Done properly, this system will safely organize traffic and save lives, with no 
 
 With minimal effort, this collective action allows us to save lives and make a real difference as a nation. It’s a simple, yet powerful, way to contribute—we the people.
 
+
+~
+
+please note: 
+
+I need to speak to actual first responders, not the internet, but actual people. i make a few assumptions like, connecting their routes, is based on my observations on the frequency in which i watched FRs take the same route as the one before them, or if not, at some point they will use the same route - it is the goal of the author (thats me, ive always wanted to write that!) to ensure that this system works as an actual express lane to the n'th degree as in a temporary German Audubon, my fears are also as such - people who wait till the very end of a merging lane - instead of merging as soon as the chance is there - I imagine a similar situation could occur in which it could cause issues with the system operating - which is why i think, not only flashing yellow lights within its flashing red white and blue set, but giving two such intersections, or one depending on its length, and traffic density and other determining factors. 
 ___________________ 
 
 ## Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others
