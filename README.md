@@ -24,7 +24,9 @@ _______
 
 __________
 
-I came up with this for someone, sorry' ag'in, seriously, stupidly, i thought id be able impress her by simply just getting a nobel prize for her, and our (what i wished) future, and the first time i told anyone about this idea intrestingly was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feelings and... sorry: never stopped thinking of her, us. 
+I came up with this for someone, sorry' ag'in, seriously, stupidly, i thought id be able impress her by simply just getting a nobel prize for her, and our (what i wished) future, and the first time i told anyone about this idea intrestingly was when sitting with them while they ate their ice-cream from the best place in the world; and I also literlly just came up with it soon after we met, but I mightve got caught up in my own feelings and... sorry: never stopped thinking of her. 
+
+I belived no one has ever in my life looked at me like her, and ive never looked at anyone the way i look at her, she has enough light in her eyes to grow the rainforest billions of times over.  
 
 -----
 -----
