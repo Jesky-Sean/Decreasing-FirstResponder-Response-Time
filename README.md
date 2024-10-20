@@ -24,7 +24,7 @@ _______
 
 __________
 
-I came up with this for someone, sorry' a'in, seriously, stupidly, i thought id be able impress her by simply just getting a nobel prize for her, and our (what i wished) future, and the first time i told anyone abouy this idea intrestingly was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feelings and... sorry: 
+I came up with this for someone, sorry' ag'in, seriously, stupidly, i thought id be able impress her by simply just getting a nobel prize for her, and our (what i wished) future, and the first time i told anyone about this idea intrestingly was when eating ice-cream from the best place in the world; and i literlly just came up with it soon after we met, but i got caught up in my own feelings and... sorry: never stopped thinking of her, us. 
 
 -----
 -----
