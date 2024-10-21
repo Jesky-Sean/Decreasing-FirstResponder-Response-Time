@@ -3,6 +3,8 @@ actual content below
 
 somehow still alive, fell asleep without clothes on outside, again, and again, and again - because of gundys hate group, im not going back inside so they can just start up again and again and again, never stopping. if i die from hypothermia, its gundys fault, i cant take care of myself due to her vicious hate crimes (shes the landlord here as well, she trusts the people doing this with her life, her exact words) while they were torturing and hurting me severly daily - i cant wait till gundy fucking dies for being so fuckkng hateful, we dont need people like this group in this world, they should be fucking killed for this, especally gundy who enabled and encouraged and didnt do any work herself, just kept sending her friends over to check on themselves and say "oh nothing going on here" and she would say, "i didnt hear anything" only to find out, she never actually checked!  fuck this group and her fucking friends. prob. moving soon, no one wants me in CO. or anywhere if i have to even now, sleep outside in freezing rain and temps, thatz how bad and evil these fucking people are, and how horrible the treatment is that dying from sleeping in the cold no matter what, is the only option anymore. peace out, will get much colder over the next few days. fuck you gundy and your fucking friends. 
 
+cant take a shower, cant use the restroom, cant sleep for days or weeks or months at a time (before specifically i was able to walk again after captivity) cant brush my teeh, cant do anything because of gundy and her hate group of her friends of her building. 
+
 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
