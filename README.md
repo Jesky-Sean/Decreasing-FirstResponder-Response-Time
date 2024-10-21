@@ -1,5 +1,9 @@
 
 actual content below
+
+somehow still alive, fell asleep without clothes on outside, again, and again, and again - because of gundys hate group, im not going back inside so they can just start up again and again and again, never stopping. if i die from hypothermia, its gundys fault, i cant take care of myself due to her vicious hate crimes (shes the landlord here as well, she trusts the people doing this with her life, her exact words) while they were torturing and hurting me severly daily - i cant wait till gundy fucking dies for being so fuckkng hateful, we dont need people like this group in this world, they should be fucking killed for this, especally gundy who enabled and encouraged and didnt do any work herself, just kept sending her friends over to check on themselves and say "oh nothing going on here" and she would say, "i didnt hear anything" only to find out, she never actually checked!  fuck this group and her fucking friends. 
+
+
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
 3. [Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
