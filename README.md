@@ -1,15 +1,6 @@
 
 actual content below this:
-
->>its actually facinating, after sleeping in 35 - 40 degree weather (not including wind or chill factor) what happens to the body is you become really still and start to wake-dream throughout the entire night, somehow not noticing how the temp is dropped so low and thats why your shaking uncontrollably and violently, in addition, one cool effect is no more being tortured by gundy and her friends once i die, so there is that, prob the only true gift without wings can be given or observe in these ghastly, inhumane, dehumanizing, discriminatory extreme condition they created.  
-
- and no matter what i have a legacy they could never have or take from me. fuck you. gundy, you deserve the worst a human could get one day for this torment and treatment by your friends and your hate group. 
-
-shivering and shaking all night, again - hurts to breathe, coughing, they won, gundys group wins in a few days! so, somehow still alive, fell asleep without clothes on outside, again, and again, and again narcolepsy + exhaustion from gundys hate group and their actions - because of gundys hate group, im not going back inside so they can just start up again and again and again, never stopping. if i die from hypothermia, its gundys fault, i cant take care of myself due to her vicious hate crimes (shes the landlord here as well, she trusts the people doing this with her life, her exact words) while they were torturing and hurting me severly daily - i cant wait till gundy fucking dies for being so fuckkng hateful, we dont need people like this group in this world, they should be fucking killed for this, especally gundy who enabled and encouraged and didnt do any work herself, just kept sending her friends over to check on themselves and say "oh nothing going on here" and she would say, "i didnt hear anything" only to find out, she never actually checked!  fuck this group and her fucking friends. prob. moving soon, no one wants me in CO. or anywhere if i have to even now, sleep outside in freezing rain and temps, thatz how bad and evil these fucking people are, and how horrible the treatment is that dying from sleeping in the cold no matter what, is the only option anymore. peace out, will get much colder over the next few days. fuck you gundy and your fucking friends. 
-
-cant take a shower, cant use the restroom, cant sleep for days or weeks or months at a time (before specifically i was able to walk again after captivity) cant brush my teeh, cant do anything because of gundy and her hate group of her friends of her building. 
-
-
+ 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
 3. [Criminal or Medical Emergencies in Which the Seconds/Minutes Matter to Save the Lives of Others](#criminal-or-medical-emergencies-in-which-the-secondsminutes-matter-to-save-the-lives-of-others)
