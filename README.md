@@ -3,7 +3,7 @@ actual content below this:
 
 if she ever seen this, id like her to know; this is what i wanted to work on this with her. 
 
-so i think i counted from the first day we talked, not the first day we laied eyes on eachother (when i really should have counted i think, but wearing a cameo, really helped me know. and showes a lot - if her symbology is like im thinkng. it means a lot if it is. like honestly - idk ... jesus do i hope. 
+so i think i counted from the first day we talked, not the first day we laied eyes on eachother (when i really should have counted i know)
 
  
 1. [Introduction](#introduction)
