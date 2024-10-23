@@ -1,7 +1,7 @@
 
 actual content below this:
 
-if she ever seen this, id like her to know; this is what i wanted to work on this with her. 
+if she ever seen this, id like her to know; this is what i wanted to work on this for her, or esp. with her if she ever wanted.  thats a dream as well :)
 
 so i think i counted from the first day we talked, not the first day we laied eyes on eachother (when i really should have counted i know)
 
