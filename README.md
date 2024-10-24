@@ -92,7 +92,16 @@ activate middle lane over outer lanes until destination intersection or other tu
 
 aslo seeing as how fast our FRs will be enabled to travel using this system, with the amount of lives saved by them per annum (litle joke about how finance is cold to human lives), less trauma, less everything has a chance to happen - instead of arriving late, FR will have the chance to be as affective as they were always meant to be if utilized propwrly. meaning - we may have resources left over that were being waisted (anyone else thinkinh better training areas like they have fuckin stadiums for football and basketball and socker and shit but the people who actually save lives have to use run down motels and a field where they play frizbe or some shit. idk. somethjng is not right about that picture. (this last part is my own idea of this situation,) maybe just maybe - give the same level of professional training and cant be done by a billioner but regular folks who have to push for it. 
 
-^this edge case is one if been working on for a while (btw, i should have been done with this long ago, used to take me days to complete an invention and never put it out there, or id do my old job - but jesus... ive been working on this for a while. fuck hate crimes and dehumanizing and degrading treatment by the landlord and her group, honestly - one day, one of these days it will be known what they did to me, i swear to it - every single detail of their shitty group and behavior and their : summations of character, (a theory im developing for the psychology of hate groups in situations quite like this to predict and eliminate them from society with an equation i wont write...) 
+also, the lighting system should reset when the FRLS has been turned on or off, depending on direction. im pretty sure. idk.
+
+just fantizing. and idea that -  would be in my mind cooler than the actual idea to secure a route is where the line segments in the road would actually raise up from the ground to seperate both sides (active, inactive) as an addition, but its hardly required, this idea is nothing different than what we already have, just used in a different way than before, only for very short times, and it will take no time at all for FRs to pass, as such it would hardly be an inconvience to anyone. 
+
+
+another edge case is when a pregnant women needs to get to an ER, or someones been shot, or other such an event when the system is active - simple - call 911, they will guide you through the intersection or whatever, the FRs will meet you at your dest, to varify its correct use. simple. done. next. 
+
+^this edge case (above paragraph, relating to doing a uturn if your lane is occupied as active) 
+
+is one if been working on for a while (btw, i should have been done with this long ago, used to take me days to complete an invention and never put it out there, or id do my old job - but jesus... ive been working on this for a while. fuck hate crimes and dehumanizing and degrading treatment by the landlord and her group, honestly - one day, one of these days it will be known what they did to me, i swear to it - every single detail of their shitty group and behavior and their : summations of character, (a theory im developing for the psychology of hate groups in situations quite like this to predict and eliminate them from society with an equation i wont write...) 
 
 ___________________ 
 
