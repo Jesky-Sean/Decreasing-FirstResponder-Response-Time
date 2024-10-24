@@ -90,6 +90,16 @@ please note:
 
 I need to speak to actual first responders, not the internet, but actual people. i make a few assumptions like, connecting their routes, is based on my observations on the frequency in which i watched FRs take the same route as the one before them, or if not, at some point they will use the same route - it is the goal of the author (thats me, ive always wanted to write that!) to ensure that this system works as an actual express lane to the n'th degree as in a temporary German Audubon, my fears are also as such - people who wait till the very end of a merging lane - instead of merging as soon as the chance is there - I imagine a similar situation could occur in which it could cause issues with the system operating - which is why i think, not only flashing yellow lights within its flashing red white and blue set, but giving two such intersections, or one depending on its length, and traffic density and other determining factors. 
 
+________
+
+we have a few options for its operation as well, for example:
+
+activate middle lane over outer lanes until destination intersection or other turning intersections, but this would cause havoc, in reality, most vehicles, if they even are affected by this even slightly, they may have to do a uturn, or idk, but considering lives saved, a uturn is not such an issue, 
+
+aslo seeing as how fast our FRs will be enabled to travel using this system, with the amount of lives saved by them per annum (litle joke about how finance is cold to human lives), less trauma, less everything has a chance to happen - instead of arriving late, FR will have the chance to be as affective as they were always meant to be if utilized propwrly. meaning - we may have resources left over that were being waisted (anyone else thinkinh better training areas like they have fuckin stadiums for football and basketball and socker and shit but the people who actually save lives have to use run down motels and a field where they play frizbe or some shit. idk. somethjng is not right about that picture. (this last part is my own idea of this situation,) maybe just maybe - give the same level of professional training and cant be done by a billioner but regular folks who have to push for it. 
+
+^this edge case is one if been working on for a while (btw, i should have been done with this long ago, used to take me days to complete an invention and never put it out there, or id do my old job - but jesus... ive been working on this for a while. fuck hate crimes and dehumanizing and degrading treatment by the landlord and her group, honestly - one day, one of these days it will be known what they did to me, i swear to it - every single detail of their shitty group and behavior and their : summations of character, (a theory im developing for the psychology of hate groups in situations quite like this to predict and eliminate them from society with an equation i wont write...) 
+
 ___________________ 
 
 ![image](https://github.com/user-attachments/assets/cd57e089-2f95-4977-a480-687727e48c1e)
