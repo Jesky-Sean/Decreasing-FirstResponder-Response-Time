@@ -1,9 +1,12 @@
 
 actual content below this:
 
-if she ever seen this, id like her to know; this is what i wanted to work on this for her, or esp. with her if she ever wanted.  thats a dream as well :)
+so ready to fucking die. thanks gundy. thanks to you and your fucking hate group, waking up shivvering and shaking and everything else, gundy knows what she did and is doing - her friends and her started this over a year ago, all she had to do was her fucking job, thats all, literrly listen - nope - couldnt even do that, one of these fucking days... 
 
-so i think i counted from the first day we talked, not the first day we laied eyes on eachother (when i really should have counted i know)
+thanks a lot - no one person there for me to talk to or to help me - thanks a lot. going to die.  just working on how, fuck this world. fuck this hate group, fuck these inhumane treatment by gundy and her complex - peace out.  ive had enough and im ready to fucking die and i dont give a fuck how. 
+
+
+
 
  
 1. [Introduction](#introduction)
