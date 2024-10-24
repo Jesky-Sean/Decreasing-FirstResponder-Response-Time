@@ -6,6 +6,9 @@ so ready to fucking die. thanks gundy. thanks to you and your fucking hate group
 thanks a lot - no one person there for me to talk to or to help me - thanks a lot. going to die.  just working on how, fuck this world. fuck this hate group, fuck these inhumane treatment by gundy and her complex - peace out.  ive had enough and im ready to fucking die and i dont give a fuck how. 
 
 
+thanks again catholic church, begged for sanctuary - begged everyone on fucking earth for help - one invention. one and the whold world is fucking dead or protected, what does it fucking take what do you all fucking want - and still thats not enough to save my life, what is? someone had a cleft lip and yall took him out of africa or some shit - these are human rights abuses and/or actual form of torture in our country, right now in one form or another - someone tell me - what does it take - maybe some muslm group could help me or some shit, ill design whatever the fuck anyone wants to get me out of this situation -  i dont know where to fucking go or how to even ask for help after being tortured for so long and in these conditions, so lost. so fucking confused and cant take care of myself anymore. thanks gundy and your friends you belived when you could have just done your fucking job you fucking cunt. nope just keep listening to the fuckin idiots who you trusted with your life to this point. fuck you. 
+
+
 
 
  
