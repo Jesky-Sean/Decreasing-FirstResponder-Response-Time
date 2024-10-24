@@ -1,13 +1,7 @@
 
 actual content below this:
 
-so ready to fucking die. thanks gundy. thanks to you and your fucking hate group, waking up shivvering and shaking and everything else, gundy knows what she did and is doing - her friends and her started this over a year ago, all she had to do was her fucking job, thats all, literrly listen - nope - couldnt even do that, one of these fucking days... 
-
-thanks a lot - no one person there for me to talk to or to help me - thanks a lot. going to die.  just working on how, fuck this world. fuck this hate group, fuck these inhumane treatment by gundy and her complex - peace out.  ive had enough and im ready to fucking die and i dont give a fuck how. one way would be getting NK to kill me, which wouldnt be hard at all and prob the easist direction, the issue is simple, other people could get hurt or WW3, so thays ko option. wb ..... ya idk. maybe hit by a bus, getting shot while hunting, dying by saving the life of another (this is the way ive alwys wanted to die and almost had it a few times, but the attacker always got so fucked up by me that it never worked. ever. too god damn skilled a fighter, idk. someone wants to kill me and maybe we should let them. 
-
-thanks again catholic church, begged for sanctuary - begged everyone on fucking earth for help - one invention. one and the whold world is fucking dead or protected, what does it fucking take what do you all fucking want - and still thats not enough to save my life, what is? someone had a cleft lip and yall took him out of africa or some shit - these are human rights abuses and/or actual form of torture in our country, right now in one form or another - someone tell me - what does it take - maybe some muslm group could help me or some shit, ill design whatever the fuck anyone wants to get me out of this situation (excluding russia and china, i atill want to fuck one of you up from stealing from me - fuxk you still -  i dont know where to fucking go or how to even ask for help after being tortured for so long and in these conditions, so lost. so fucking confused and cant take care of myself anymore. thanks gundy and your friends you belived when you could have just done your fucking job you fucking cunt. nope just keep listening to the fuckin idiots who you trusted with your life to this point. fuck you. 
-
-
+writing the worst feelings when being tortured or affected by inhumaine and degrading and dehumanizing treatment - writing is the best tactic. reading is almost impossible, but writing is so fuckkn easy to put any word down tuat fills that area they tried to empty. like a fuck you salute to them from your heart. it feels really good a lot of the time - if i held it in id look as angry and fucked up as they are every day they continue living in hate (fun fact, i dont hate anyone, i love everyone in this wolrd so much - so i look 10-12 yr younger than anyone else my age) 
 
 
  
