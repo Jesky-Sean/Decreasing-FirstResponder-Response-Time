@@ -1,5 +1,7 @@
+
 i dream of her most nights and wonder whats on her mind all the time, how she will be amazing at whatever she does and how just great she is. 
-it really does help take me away from this bad env., and into the happiest thoughts of my life. 
+it really does help take me away from this bad env., and into the happiest thoughts of my life.
+
 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
