@@ -1,19 +1,6 @@
-i hope you fucking die gumdy. as soon as i walk anywhere your fucking hate group wont stop, you know the maintence guys friend or family memeber like you didnt know. fuck you. 
+i dream of her most nights and wonder whats on her mind all the time, how she will be amazing at whatever she does and how just great she is. 
+it really does help take me away from this bad env., and into the happiest thoughts of my life. 
 
-her fucking group wont stop. i never hope you all wont be able to shower, eat, or sleep, while your tortured and harrassed, youll start to sleep then be jolted awake each time, youll try to eat sleep rest or lay down, and your fukinh body will wither in pain by all while being doen by the lowest, most worthless segment of our shared reality: gundys hate group. her creation, her friends, her "i trust them with my life" type friends, her buildings, her creation. 
-
-one day, of one week, all she had to do was listen, for a full day, thats all she would have had to do, but she intentionally didnt take time off work, intentionally was neglagent, intentionally caused pain and suffering by not acting but listening to gossip by these fucking idiots. fuck em all. gossip. really? for years i had jelly people spread gossip about me, fucking losers from here, everything you could imaging im assuming, this is because i called them out on what they were when i noticed it. fuck you gundy you fucking loser family (all playing outside while i was screaming in absolute agony from your and your friends hate group and their torture, laughing and playing like nothing was going on, i hope you the worst) and your fucking friends for this. 
-
-everyone heard everything, me screaming/singing/anything i could for hours, top of my fucking lungs for as long as i could remember until they called the cops, formed a mob, at my front door because i needed to dance to take away the stress of torture (most effective, was told i wsnt allowed shortly after) they claimed some BS as always, was dancing for < 15 min (only 3 songs played in a row. ) 
-
-gundy i hope you fucking die, as soon as i walk in your friends start up. i hope you fucking die so fucking badly for being so bad to others. fuck you. 
-
-made it through another night! shvering and shaking the whole night again.  this again fucking sucks, but sleeping all cramped and unable to strexh out, and feeling near freezing cold weather - not that bad, esp. considering idk. 
-
-
-i dream of her most nights,
-
- 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
 3. [Options And Ideas and Thoughts](#options-and-ideas-and-thoughts)
