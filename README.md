@@ -1,4 +1,7 @@
+gundy i hope you fucking die, as soon as i walk in your friends start up. i hope you fucking die so fucking badly for being so bad to others. fuck you. 
+
 made it through another night! shvering and shaking the whole night again.  this again fucking sucks, but sleeping all cramped and unable to strexh out, and feeling near freezing cold weather - not that bad, esp. considering idk. 
+
 
 i dream of her most nights,
 
