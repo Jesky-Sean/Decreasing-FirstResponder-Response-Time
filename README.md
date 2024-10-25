@@ -1,9 +1,6 @@
-if i die of hypothermia tonight because of this inhumane env. tell M ill always love her and shes going to be incredible at everything she does and could ever do and ill miss her. or pneumonia or something like that (this cough is worrysome and begining to hurt more and more in my chest.)
+made it through another night! shvering and shaking the whole night again.  this again fucking sucks, but sleeping all cramped and unable to strexh out, and feeling near freezing cold weather - not that bad, esp. considering idk. 
 
-actual content below this:
-
-writing the worst feelings when being tortured or affected by inhumaine and degrading and dehumanizing treatment - writing is the best tactic. reading is almost impossible, but writing is so fuckkn easy to put any word down tuat fills that area they tried to empty. like a fuck you salute to them from your heart. it feels really good a lot of the time - if i held it in id look as angry and fucked up as they are every day they continue living in hate (fun fact, i dont hate anyone, i love everyone in this wolrd so much - so i look 10-12 yr younger than anyone else my age) 
-
+i dream of her most nights,
 
  
 1. [Introduction](#introduction)
