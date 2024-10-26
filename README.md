@@ -1,3 +1,6 @@
+gundy and patrick. this was their whole thing and they wont fucking atop. i cant wait for your worst gundy i cant fucking wait for you to die with your fucking group for this.
+what an fucking ugly fucking group of yours gundy like your fucking character. i cant wait for you to fucking die for this. 
+
 fuck you gundy. i know one day you will get fucked by this earth for being so fucking evil and pretending you didnt know. one of these fucking days. 
 
 i hope you fucking die you and your fucking dumb group. fuck you all. fucking cowards. i cant wait to show the world how fucking cowardly you all are. i should and could have kiju-n fuck you up if i really wanted. fuck you gundy and your maintnence friends and your new addition like you didnt know. one day the wolrd will know about you gundy. thinking you can get away with this shit for so long. one persons fingerprints are all over this more than anyone, the person who puts them here, knowingly, she puts her hate group here. the wolrd will fucking find out one day gundy. fuck you and this fucking pain. fucm you. . 
