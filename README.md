@@ -1,3 +1,8 @@
+i did make 1 mistake id like to tell her, she will not see this, but id like her to know i told one women she was gorgous when i thought you hated my guts beyond meausure - not a single excuse... confused or not, i did felt bad, and i was wrong to. idk. 
+
+everyone used to wave now no more - idk what i did but sorry, never hit on anyone else after i met my love. not once. didnt get anyone else any coffee, food, anything. anyways, ill sit outside for a year if i have to, to prove your the only one women i want and need in my life.  
+
+
 every guy should wait outside for the women they love, no texting, IM nothing, just wait for her to come to you, to show her that shes the only one and that there is no one else to look for because youve already found her. idk. i love the thought of her driving by and me getting a glance or her seeing me, either way, i like letting her potentally know waiting for only her. 
 
 
