@@ -1,3 +1,5 @@
+every guy should wait outside for the women they love, no texting, IM nothing, just wait for her to come to you, to show her that shes the only one and that there is no one else to look for because youve already found her. idk. i love the thought of her driving by and me getting a glance or her seeing me, either way, i like letting her potentally know waiting for only her. 
+
 
 i dream of her most nights and wonder whats on her mind all the time, how she will be amazing at whatever she does and how just great she is. 
 it really does help take me away from this bad env., and into the happiest thoughts of my life.
