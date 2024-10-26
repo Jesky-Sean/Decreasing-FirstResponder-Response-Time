@@ -1,3 +1,5 @@
+still no water pressure. 
+
 here goes the next thing. again thanks gundy. they are removing all water pressure. youre all just fucking waisting youre lives daily while looking like that... just wont leave me alone. 
 
 one day gundy - youll never be able to take a shower, youll never be able to use the restoom or sleep, you be cramped in positions where you hope you get releif because you cant stand sit or lay down anywhere, youll get 1-2 h of sleep a night in segments and that will be your hell while exposed to all these fucking stimuli that youve created by your inaction or action, one day we will find out which. youll wake up shivvering and shaking and unable to breathe, youll reach for anything you can to keep warm knowing nothing you have is enough. why would you want that to happen to you? then why the fuck did you do it to me. fuck you all. 
