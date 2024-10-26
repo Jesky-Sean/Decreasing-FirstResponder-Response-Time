@@ -1,3 +1,10 @@
+just like that, i walk into the bathroom and they start up - first they hit the wall hard to let me know they know exactly where im at in the place, then they build up from there. 
+
+like they have been since i started writing. i fucking hope you die so badly gundy for your fucking creation of this fucking hate group. 
+
+still. gundy. still. fuck you. why are so many people so out of their fuckig minds. if you had any fucking clue what id do and have done. fuck you all. like you could ever have anything i could ever want. fuck you. 
+
+
 i did make 1 mistake id like to tell her, she will not see this, but id like her to know i told one women she was gorgous when i thought you hated my guts beyond meausure - not a single excuse... confused or not, i did felt bad, and i was wrong to. idk. 
 
 everyone used to wave now no more - idk what i did but sorry, never hit on anyone else after i met my love. not once. didnt get anyone else any coffee, food, anything. anyways, ill sit outside for a year if i have to, to prove your the only one women i want and need in my life.  
