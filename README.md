@@ -1,3 +1,5 @@
+i hope you fucking die you and your fucking dumb group. fuck you all. fucking cowards. i cant wait to show the world how fucking cowardly you all are. i should and could have kiju-n fuck you up if i really wanted. fuck you gundy and your maintnence friends and your new addition like you didnt know. one day the wolrd will know about you gundy. thinking you can get away with this shit for so long. one persons fingerprints are all over this more than anyone, the person who puts them here, knowingly, she puts her hate group here. the wolrd will fucking find out one day gundy. fuck you and this fucking pain. fucm you. . 
+
 just like that, i walk into the bathroom and they start up - first they hit the wall hard to let me know they know exactly where im at in the place, then they build up from there. 
 
 like they have been since i started writing. i fucking hope you die so badly gundy for your fucking creation of this fucking hate group. 
