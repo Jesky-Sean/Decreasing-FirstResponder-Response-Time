@@ -1,3 +1,7 @@
+one day gundy - youll never be able to take a shower, youll never be able to use the restoom or sleep, you be cramped in positions where you hope you get releif because you cant stand sit or lay down anywhere, youll get 1-2 h of sleep a night in segments and that will be your hell while exposed to all these fucking stimuli that youve created by your inaction or action, one day we will find out which. youll wake up shivvering and shaking and unable to breathe, youll reach for anything you can to keep warm knowing nothing you have is enough. why would you want that to happen to you? then why the fuck did you do it to me. fuck you all. 
+
+finally just stopped after writing this above paragraph. so like 3 min ago. 
+
 gundy and patrick. this was their whole thing and they wont fucking atop. i cant wait for your worst gundy i cant fucking wait for you to die with your fucking group for this.
 what an fucking ugly fucking group of yours gundy like your fucking character. i cant wait for you to fucking die for this. 
 
