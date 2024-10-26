@@ -1,3 +1,6 @@
+now the next stimui. gundy. i bet you cant wait to be famous and have all the attention of being such bad people.  im sure it will work out great like the tiki people. 
+
+
 even less now. this is what gundy wants. she acts like she didnt see anything but dont let that fool you, the maintence guy, the stalker and the person she "trusts with her life" was the one engaged and she always allowd him free roam to any apartment and milk the clock to hurt and harrass me, i bet he was paied for each day he was "working" when he was actually doing whats being done by the rest of gundys group - right this second as before. if its not one way to harass or cause pain and suffering - its another way, to keep this going - the problem is, when they are alone, they are scared, they need the backing of walls to hide behind or a hate group to do anything at all  honestly, i do think that they are incapable of thinking without hate and anger
 
 her and patrick are exactly the same
