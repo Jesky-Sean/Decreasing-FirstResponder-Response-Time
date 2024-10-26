@@ -1,36 +1,4 @@
-now the next stimui. gundy. i bet you cant wait to be famous and have all the attention of being such bad people.  im sure it will work out great like the tiki people. 
-
-
-even less now. this is what gundy wants. she acts like she didnt see anything but dont let that fool you, the maintence guy, the stalker and the person she "trusts with her life" was the one engaged and she always allowd him free roam to any apartment and milk the clock to hurt and harrass me, i bet he was paied for each day he was "working" when he was actually doing whats being done by the rest of gundys group - right this second as before. if its not one way to harass or cause pain and suffering - its another way, to keep this going - the problem is, when they are alone, they are scared, they need the backing of walls to hide behind or a hate group to do anything at all  honestly, i do think that they are incapable of thinking without hate and anger
-
-her and patrick are exactly the same
-me:
-leave me alone, stop doing that please we tried talking to you all but you all keep running away each time to tell someone to spread gossip (dead serious, that actually happened)
-
-
-them: ok ill just do it this way then or thay way because im above all others even though ive never done anything with my life or saved the life of another, just the fact im breathing means im better because my mom said so and shes BFFs with the landlord and they wont stop me because she would lose x y z or friends within this dumb group. yup. thats in a nutshell their thinking. 
-
-still no water pressure. 
-
-here goes the next thing. again thanks gundy. they are removing all water pressure. youre all just fucking waisting youre lives daily while looking like that... just wont leave me alone. 
-
-one day gundy - youll never be able to take a shower, youll never be able to use the restoom or sleep, you be cramped in positions where you hope you get releif because you cant stand sit or lay down anywhere, youll get 1-2 h of sleep a night in segments and that will be your hell while exposed to all these fucking stimuli that youve created by your inaction or action, one day we will find out which. youll wake up shivvering and shaking and unable to breathe, youll reach for anything you can to keep warm knowing nothing you have is enough. why would you want that to happen to you? then why the fuck did you do it to me. fuck you all. 
-
-finally just stopped after writing this above paragraph. so like 3 min ago. 
-
-gundy and patrick. this was their whole thing and they wont fucking atop. i cant wait for your worst gundy i cant fucking wait for you to die with your fucking group for this.
-what an fucking ugly fucking group of yours gundy like your fucking character. i cant wait for you to fucking die for this. 
-
-fuck you gundy. i know one day you will get fucked by this earth for being so fucking evil and pretending you didnt know. one of these fucking days. 
-
-i hope you fucking die you and your fucking dumb group. fuck you all. fucking cowards. i cant wait to show the world how fucking cowardly you all are. i should and could have kiju-n fuck you up if i really wanted. fuck you gundy and your maintnence friends and your new addition like you didnt know. one day the wolrd will know about you gundy. thinking you can get away with this shit for so long. one persons fingerprints are all over this more than anyone, the person who puts them here, knowingly, she puts her hate group here. the wolrd will fucking find out one day gundy. fuck you and this fucking pain. fucm you. . 
-
-just like that, i walk into the bathroom and they start up - first they hit the wall hard to let me know they know exactly where im at in the place, then they build up from there. 
-
-like they have been since i started writing. i fucking hope you die so badly gundy for your fucking creation of this fucking hate group. 
-
-still. gundy. still. fuck you. why are so many people so out of their fuckig minds. if you had any fucking clue what id do and have done. fuck you all. like you could ever have anything i could ever want. fuck you. 
-
+every morning means - another night. FUBAR is the correct terminology im almost positive it is the actual perfect definition for this situation.  
 
 i did make 1 mistake id like to tell her, she will not see this, but id like her to know i told one women she was gorgous when i thought you hated my guts beyond meausure - not a single excuse... confused or not, i did felt bad, and i was wrong to. idk. 
 
