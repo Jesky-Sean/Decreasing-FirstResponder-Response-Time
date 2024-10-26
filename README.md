@@ -1,4 +1,9 @@
-even less now. this is what gundy wants. she acts like she didnt see anything but dont let that fool you, the maintence guy, the stalker and the person she "trusts with her life" was the one engaged and she always allowd him free roam to any apartment and milk the clock to hurt and harrass me, i bet he was paied for each day he was "working" when he was actually doing whats being done right this second as before. if its not one thing its another way to keep this going. honestly. her and patrick are exactly the same: leave me alone, stop doing that
+even less now. this is what gundy wants. she acts like she didnt see anything but dont let that fool you, the maintence guy, the stalker and the person she "trusts with her life" was the one engaged and she always allowd him free roam to any apartment and milk the clock to hurt and harrass me, i bet he was paied for each day he was "working" when he was actually doing whats being done by the rest of gundys group - right this second as before. if its not one way to harass or cause pain and suffering - its another way, to keep this going - the problem is, when they are alone, they are scared, they need the backing of walls to hide behind or a hate group to do anything at all  honestly, i do think that they are incapable of thinking without hate and anger
+
+her and patrick are exactly the same
+me:
+leave me alone, stop doing that please we tried talking to you all but you all keep running away each time to tell someone to spread gossip (dead serious, that actually happened)
+
 
 them: ok ill just do it this way then or thay way because im above all others even though ive never done anything with my life or saved the life of another, just the fact im breathing means im better because my mom said so and shes BFFs with the landlord and they wont stop me because she would lose x y z or friends within this dumb group. yup. thats in a nutshell their thinking. 
 
