@@ -1,24 +1,6 @@
+every night, i swear the only thing keeping me going is i have so much work and suff to share with the world still that no one will just take off my hands thankfully - that kinda forced me to stay alive during being tortured, and effected by hate crimes, fun fact: if i hadnt been tortured in captivity, i wouldnt have met the women i fell in love with as well, and i wouldn t have came up with this idea to save countless lives - mainly to ensure that she would be protected if we were together no matter what - even if i wasnt there, i could in a way be there in an emergency if that makes sense. so its intresting what they this hate group, wanted to do, in a large sense back-fired, and made me think of a way to save even more lives than ever before (previous work only ensured about 100 to a few hund. people saved per year at most in total) im actually happy about that, so fuck this group, im getting better at handing the cold and shaking way less and shivering way less i think idk (again i often will fall asleep and rip off all my clothes when sleeping or roll them up in the cold for some reasion (i wake up unable to breathe and move and it feela like im in a tiny box because i actually am, and ya that sucks) but the cold makes the cramps of being in such a space not so bad. every night, is just another night in the cold and cramped, instead of what they did to me before. 
+
 M i love you, i told you as much, ill only love you if youd let me, when i think to what you said a few days ago, retold to me, if i was upset or mad or anything - no. upset with myself only, but i loved you through it all, i told you what i told you for a reason: i dont need to know if you know, i trust you. i mean that - i wanted to build an empire with you, and never anyone and i dont know why youd think that for a second - not ever again please - its true love, not one argument or issue and its over type of a "love" - i thought it was a forever love, but again thats up to you as much as i want that for us, its only if its something we both want (i do) also wearing such a symbolic thing that taylor swift wore in love story, and the day you showed up mean a lot - i just wish we could talk again as we did before. 
-
-another night outside and shaking and shivering and unable to keep warm, anyways. fuck you all.  you couldve just killed me but decided to do this because your pure sadist hate group loved it. one day gundy eveyone will know about you and your "friends" 
-
-well here it goes, into the shower as soon as i step in. fuck you gundy. fuck your group. 
- they start up, honestly, one day, one day, everyone will know what you did and how bad it was and how it hurts beyond any pain (this coming from someone who used to have cluster headaches) 
-
-
-   
-every morning means - another night. FUBAR is the correct terminology im almost positive it is the actual perfect definition for this situation.  (not the below paragraphs, where im "living")
-
-i did make 1 mistake id like to tell her, she will not see this, but id like her to know i told one women she was gorgous when i thought you hated my guts beyond meausure - not a single excuse... confused or not, i did felt bad, and i was wrong to. idk. 
-
-everyone used to wave now no more - idk what i did but sorry, never hit on anyone else after i met my love. not once. didnt get anyone else any coffee, food, anything. anyways, ill sit outside for a year if i have to, to prove your the only one women i want and need in my life.  
-
-
-every guy should wait outside for the women they love, no texting, IM nothing, just wait for her to come to you, to show her that shes the only one and that there is no one else to look for because youve already found her. idk. i love the thought of her driving by and me getting a glance or her seeing me, either way, i like letting her potentally know waiting for only her. 
-
-
-i dream of her most nights and wonder whats on her mind all the time, how she will be amazing at whatever she does and how just great she is. 
-it really does help take me away from this bad env., and into the happiest thoughts of my life.
 
 
 1. [Introduction](#introduction)
