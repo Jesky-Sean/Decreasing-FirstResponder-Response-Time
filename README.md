@@ -1,3 +1,5 @@
+M i love you, i told you as much, ill only love you if youd let me, when i think to what you said a few days ago, retold to me, if i was upset or mad or anything - no. upset with myself only, but i loved you through it all, i told you what i told you for a reason: i dont need to know if you know, i trust you. i mean that - i wanted to build an empire with you, and never anyone and i dont know why youd think that for a second - not ever again please - its true love, not one argument or issue and its over type of a "love" - i thought it was a forever love.   
+
 another night outside and shaking and shivering and unable to keep warm, anyways. fuck you all.  you couldve just killed me but decided to do this because your pure sadist hate group loved it. one day gundy eveyone will know about you and your "friends" 
 
 well here it goes, into the shower as soon as i step in. fuck you gundy. fuck your group. 
