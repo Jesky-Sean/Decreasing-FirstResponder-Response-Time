@@ -1,3 +1,5 @@
+another night outside and shaking and shivering and unable to keep warm, anyways. fuck you all.  you couldve just killed me but decided to do this because your pure sadist hate group loved it. one day gundy eveyone will know about you and your "friends" 
+
 well here it goes, into the shower as soon as i step in. fuck you gundy. fuck your group. 
  they start up, honestly, one day, one day, everyone will know what you did and how bad it was and how it hurts beyond any pain (this coming from someone who used to have cluster headaches) 
 
