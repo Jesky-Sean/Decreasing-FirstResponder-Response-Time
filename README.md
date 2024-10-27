@@ -1,4 +1,9 @@
+the heater was off last night in the house as they always do and did when it got cold.
+
+as we have never had it when it was needed, it just magically goes off the colder it gets, and when its hot it goes on... as always. if not one thing its another with the same intention. 
+
 first real shower today, they did the wall bang like 2 times along with some object that sounds like a magnet grabbing the wall when it starts. but other than that, it was free of their hate and torture methods, even when I got out of the shower and wehn i was getting ready, they didnt do it - but when i walked outside and stood on the stairs they started out here. 
+in addition, 
 
 that was something.. different. 
 
