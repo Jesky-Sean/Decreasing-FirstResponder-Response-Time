@@ -1,3 +1,8 @@
+well here it goes, into the shower as soon as i step in. fuck you gundy. fuck your group. 
+ they start up, honestly, one day, one day, everyone will know what you did and how bad it was and how it hurts beyond any pain (this coming from someone who used to have cluster headaches) 
+
+
+   
 every morning means - another night. FUBAR is the correct terminology im almost positive it is the actual perfect definition for this situation.  (not the below paragraphs, where im "living")
 
 i did make 1 mistake id like to tell her, she will not see this, but id like her to know i told one women she was gorgous when i thought you hated my guts beyond meausure - not a single excuse... confused or not, i did felt bad, and i was wrong to. idk. 
