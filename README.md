@@ -1,5 +1,14 @@
 well another night tonight. this morning it was on its lowest setting. along with the wall hitting - they wont stop, 
-hospital put my body in a room where after telling them it was the type of torture it was, and how im unable to sit or lay down, im unable to streach out, my chest hurts really really really really really really bad, my body is in a extream amount of pain, and my body gets put into a room with only a chair and the near-similar stimuli that i showed the hospital a while ago what it was, and then my heart was barly checked.  
+hospital put my body in a room where after telling them it was the type of torture it was, and how im unable to sit or lay down, im unable to streach out, my chest hurts really really really really really really bad, my body is in a extream amount of pain, and my body gets put into a room with only a chair and the near-similar stimuli that i showed the hospital a while ago what it was, and then my heart was barly checked (i specifically mean, the stethascope, i wasnt there for housing, i was there for help with this serious pain that makes me unable to think of a way to get out, or think in general really; and i cant blame the doctor, but i do blame no one for that room, it just felt like the biggest fuck you ive ever felt, get-in-get-out room. i tried moving the chair and that did help, but when my heart was barly touched, i felt such a internal pain ive never felt before. 
+
+i dont want to write anymore, but i feel like one day all this could be used to help someone or make a difference for them. im not trying to disparage or hurt snyones image or ehateber, i dont even want to be writing but its the only thing i hahe to maintain my coping and ability to live in. 
+
+its why i kept deleting my accounts hecause it somehow showed other viewers, and i never told anyone about it and i cant understand private or public it seems,  so thank god it only shows one viewer now and its me. 
+
+i dont want this to be seen by people because in these conditions, i may say somethkng abouy someone i dont mean or do mean but dont want to say, or say because i cant control the outlet when inneed it to cope.
+
+like, that doc. prob. had a tough time, lost patients, so much more, to see me as if nothing is wrong with visibly; he, if he was able to understand me and the extent of what happened to me, it mightve been different, but for him to see this as if im trying to trash talk him is not it, its just i have no other way to survive right now. 
+
 
 the worse you get, the harder it is to explain anything, the less possible it is to get any help because the degration of cognitive functioning. 
 
