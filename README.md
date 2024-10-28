@@ -1,17 +1,13 @@
-the heater was off last night in the house as they always do and did when it got cold.
+well another night tonight. this morning it was on its lowest setting. along with the wall hitting - they wont stop, 
+hospital put my body in a room where after telling them it was the type of torture it was, and how im unable to sit or lay down, im unable to streach out, my chest hurts really really really really really really bad, my body is in a extream amount of pain, and my body gets put into a room with only a chair and the near-similar stimuli that i showed the hospital a while ago what it was, and then my heart was barly checked.  
 
-as we have never had it when it was needed, it just magically goes off the colder it gets, and when its hot it goes on... as always. if not one thing its another with the same intention. 
+the worse you get, the harder it is to explain anything, the less possible it is to get any help because the degration of cognitive functioning. 
 
-i was outside because the previous morning and night they started up as they do and have been for over a year. but this morning was not their usual routine.
+if im unable to explain a broken bone, and get a broken bone treated, how can i explain how much pain im in and its not even visible. when i had a broken bone, i didnt show pain either, it doesnt mean im not in the most serious of pains ever. 
 
-first real shower today, they did the wall bang like 2 times along with some object that sounds like a magnet grabbing the wall when it starts. but other than that, it was free of their hate and torture methods, even when I got out of the shower and wehn i was getting ready, they didnt do it - that was suprising. 
+from the dr POV, it is nonetheless understandable to some degree, but the seriousness of how bad this pain is, is really tough no one who has DR in their name seems to understand, when it comes to me, every time - they think im lying or whatever.
 
-that was something.. different. 
-
-every night, i swear the only thing keeping me going is i have so much work and suff to share with the world still that no one will just take off my hands thankfully - that kinda forced me to stay alive during being tortured, and effected by hate crimes, fun fact: if i hadnt been tortured in captivity, i wouldnt have met the women i fell in love with as well, and i wouldn t have came up with this idea to save countless lives - mainly to ensure that she would be protected if we were together no matter what - even if i wasnt there, i could in a way be there in an emergency if that makes sense. so its intresting what they this hate group, wanted to do, in a large sense back-fired, and made me think of a way to save even more lives than ever before (previous work only ensured about 100 to a few hund. people saved per year at most in total) im actually happy about that, so fuck this group, im getting better at handing the cold and shaking way less and shivering way less i think idk (again i often will fall asleep and rip off all my clothes when sleeping or roll them up in the cold for some reasion (i wake up unable to breathe and move and it feela like im in a tiny box because i actually am, and ya that sucks) but the cold makes the cramps of being in such a space not so bad. every night, is just another night in the cold and cramped, instead of what they did to me before. 
-
-M i love you, i told you as much, ill only love you if youd let me, when i think to what you said a few days ago, retold to me, if i was upset or mad or anything - no. upset with myself only, but i loved you through it all, i told you what i told you for a reason: i dont need to know if you know, i trust you. i mean that - i wanted to build an empire with you, and never anyone and i dont know why youd think that for a second - not ever again please - its true love, not one argument or issue and its over type of a "love" - i thought it was a forever love, but again thats up to you as much as i want that for us, its only if its something we both want (i do) also wearing such a symbolic thing that taylor swift wore in love story, and the day you showed up mean a lot - i just wish we could talk again as we did before. 
-
+the nurse who gave me a blanket gave a fuck. in terms of medical help, that was it, and it did make a difference even though small.  
 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
