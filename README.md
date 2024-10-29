@@ -1,3 +1,6 @@
+here we go again. here we. fucking go again. another night outside tonight. thanks gundy and your hate group for all this pain and suffering because youre just hateful and wasted nothingnesses 
+
+
 so ya, even with the recordings it doesnt capture what the stimui is like in the place, with the other stimui added to it - what they do to me, its like im a human pinball.  
 
 well another night tonight. this morning it was on its lowest setting. along with the wall hitting - they wont stop, 
