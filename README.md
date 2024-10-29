@@ -1,27 +1,9 @@
-here we go again. here we. fucking go again. another night outside tonight. thanks gundy and your hate group for all this pain and suffering because youre just hateful and wasted nothingnesses 
+>>>also i dedicated this to her, my one true love because she makes me feel like a human, with my heart bear to her warmth. 
 
 
-so ya, even with the recordings it doesnt capture what the stimui is like in the place, with the other stimui added to it - what they do to me, its like im a human pinball.  
-
-well another night tonight. this morning it was on its lowest setting. along with the wall hitting - they wont stop, 
-hospital put my body in a room where after telling them it was the type of torture it was, and how im unable to sit or lay down, im unable to streach out, my chest hurts really really really really really really bad, my body is in a extream amount of pain, and my body gets put into a room with only a chair and the near-similar stimuli that i showed the hospital a while ago what it was, and then my heart was barly checked (i specifically mean, the stethascope, i wasnt there for housing, i was there for help with this serious pain that makes me unable to think of a way to get out, or think in general really; and i cant blame the doctor, but i do blame no one for that room, it just felt like the biggest fuck you ive ever felt, get-in-get-out room. i tried moving the chair and that did help, but when my heart was barly touched, i felt such a internal pain ive never felt before. 
-
-i dont want to write anymore, but i feel like one day all this could be used to help someone or make a difference for them. im not trying to disparage or hurt snyones image or ehateber, i dont even want to be writing but its the only thing i hahe to maintain my coping and ability to live in. 
-
-its why i kept deleting my accounts hecause it somehow showed other viewers, and i never told anyone about it and i cant understand private or public it seems,  so thank god it only shows one viewer now and its me. 
-
-i dont want this to be seen by people because in these conditions, i may say somethkng abouy someone i dont mean or do mean but dont want to say, or say because i cant control the outlet when inneed it to cope.
-
-like, that doc. prob. had a tough time, lost patients, so much more, to see me as if nothing is wrong with visibly; he, if he was able to understand me and the extent of what happened to me, it mightve been different, but for him to see this as if im trying to trash talk him is not it, its just i have no other way to survive right now. 
 
 
-the worse you get, the harder it is to explain anything, the less possible it is to get any help because the degration of cognitive functioning. 
-
-if im unable to explain a broken bone, and get a broken bone treated, how can i explain how much pain im in and its not even visible. when i had a broken bone, i didnt show pain either, it doesnt mean im not in the most serious of pains ever. 
-
-from the dr POV, it is nonetheless understandable to some degree, but the seriousness of how bad this pain is, is really tough no one who has DR in their name seems to understand, when it comes to me, every time - they think im lying or whatever.
-
-the nurse who gave me a blanket gave a fuck. in terms of medical help, that was it, and it did make a difference even though small.  
+here we go again. here we. fucking go again. another night outside tonight. thanks gundy and your hate group for all this pain and suffering because youre just hateful and wasted nothingnesses. 
 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
@@ -48,14 +30,16 @@ _______
 
 __________
 
-I came up with this for someone, sorry' ag'in, seriously, stupidly, i thought id be able impress her by simply just getting a nobel prize for her, and our (what i wished) future, and the first time i told anyone about this idea intrestingly was when sitting with them while they ate their ice-cream from the best place in the world; and I also literlly just came up with it soon after we met, but I mightve got caught up in my own feelings and... sorry: never stopped thinking of her after i seen her so i dedicated this to her (she doesn't know any of this dedication stuff yet); she has enough light shining through her eyes to make the world a better place for everyone, especally me i thought and wished.. and actually i prayed a lot too. 
+I came up with this for someone', seriously, i thought id be able impress her by simply just getting a nobel prize for her, and our (what i wished) future, and the first time i told anyone about this idea intrestingly was when sitting with them while they ate their ice-cream (from the best place in the world); and I also literlly just came up with it soon after we met, but I mightve got caught up in my own feelings and... wish i knew but i trust her and if she knows i dont need to know, (m): never stopped thinking of her after I first seen her. she got the right day. 
+
+she doesn't know any of this dedication stuff yet); the women i love - has enough light shining through her eyes to make the world a better place for everyone, especally me i thought and wished.. and actually i prayed a lot too. 
 
 -----
 -----
 
 ## Generalized use and uses Proposal
 
-revised peoposal (spellcheck and rewritten.. well all the same words, in all its glory with some help)
+revised proposal (spellcheck and rewritten.. well all the same words, in all its glory with some help)
 
 
 Here I, Sean M. Jesky, propose a valid and effective means of decreasing response times for first responders to save lives on the order of 10,000/yr plus or minus.
