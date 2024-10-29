@@ -1,7 +1,4 @@
->>>also i dedicated this to her, my one true love because she makes me feel like a human, with my heart bear to her warmth. 
-
-
-
+>>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to her warmth. 
 
 here we go again. here we. fucking go again. another night outside tonight. thanks gundy and your hate group for all this pain and suffering because youre just hateful and wasted nothingnesses. 
 
