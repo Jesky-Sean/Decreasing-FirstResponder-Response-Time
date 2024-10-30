@@ -1,6 +1,8 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.  
 
 
+and again. back to, as soon as i walk into the living room again. again uou can hear it from the door. fuck you gundy and your fucking friends. fucking cowards. 
+
 and again. i uope you fucking die gundy. fuck you and your fucking hate group, everyone will know. everyone will know about you gundy uou and your fucking sumb hate group of your pwrsonal friends. i cant wait to see you get what you deserve. 
 
 
