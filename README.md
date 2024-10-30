@@ -1,5 +1,11 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.  
 
+and again, trying to take a shower and they start up, its something i dont wish on anyone ever. 
+
+
+
+
+
 here we go again. here we. fucking go again. another night outside tonight. thanks gundy and your hate group for all this pain and suffering because youre just hateful and wasted nothingnesses. 
 
 1. [Introduction](#introduction)
