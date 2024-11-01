@@ -1,5 +1,8 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
+
+gundys fucking hate group is still at it. fuck you gundy i hope you fucking freeze to death with your fucking hategroup and family that you started this wwith. your not going to get away with this shit. everyone is going to know how you really are gundy. everyone is going to know the friends you keep - fuck you and the fucking pain and suffering you intentionally caused each and every day because you listened to your friends instead of doing your job. everyone is going to fucking know. 
+
 its the same stimui as always. 
 
 more dehumanizing treatment from gundy and her hate group friwnds. 
