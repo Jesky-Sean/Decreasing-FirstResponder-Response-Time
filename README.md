@@ -1,5 +1,7 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
+dont belive them when she and they say, they didnt know they were using their grandchildren and children to do this shit and engage in no stop daily hate crimes that mgnt supported daily by inaction and pretending ignorance. daily. allowing them to check on themselves instead of her once doing her job even once. all to protect her friends and her gains. 
+
 
 any tiny movment and they do it again and again amd agaim and again. i cant wait till gundy is known - and her friends for this shit. i cant wait till everyone knows exactly what her and her group are doing. fuck you gundy and your fucking hate group. 
 
