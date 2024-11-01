@@ -1,5 +1,9 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
+
+
+also, been testing various meds to determine if any help tolerate the cold better - there is one that works really well, but it also needs to be taken a few hours before sleep and then another medication a hour or three before bed. this mix has really been very effective. pain sucks - breathing sucks - dead? nope. sick? nope. more testing needs to be done but i think it has potental. or im just resilient as always...
+
 after going through this, to even move 1 ft left or right takes about an hour, you esentally turn into a sloth, taking every second to move because. idk. its just something that happened. like to move from standing to the shower, you just stare into the abyss until you finally can move. there is no real words to describe it, or why - it just is in this env. 
 
 dont belive them when she and they say, they didnt know they were using their grandchildren and children to do this shit and engage in no stop daily hate crimes that mgnt supported daily by inaction and pretending ignorance. daily. allowing them to check on themselves instead of her once doing her job even once. all to protect her friends and her gains. 
