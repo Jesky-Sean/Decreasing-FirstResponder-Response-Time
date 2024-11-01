@@ -1,6 +1,8 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
 
+oh, and due to this hate crimes, i cant even wash my hair properly, and this has been happening since gundys first wave of hate from downstairs as well, same exact thing. large bang, water backfire, then flooding from the drains. pretty much as long as ive been here - but again, when we said we have a problem, she ignores it, when they have a problem, she sends the people engaged in hate crimes, to not only commit more, but if they have a leak downstairs (that they fake to get into our place like we have them recorded saying) gundy will send them here instead, every single time. no matter what, gundy has always belived her hate group, every single time. never failed to support them and their goals. no matter what issue they have downstairs, they will send someone upstairs to do nothing but make shit broke, or intent. doing a bad job to keep coming back to literly just look around going through peoples to tell others because you dont have a fucking life other than hate, your all dumb, ive never met anyone dumb in my life, not even people with mental retardation are dumb, somehow, you all are actually just angry, hateful, and dumb beyond what even your parents hoped or ever could dream for. your all envious over someone with nothing. i have nothing and never did and you all are actually jelly and envyious over how much worse your life is somehow. fuckinh brilliant!
+
 one of their favorie things to do now is to clog the tub, so literly as soon as you stand in it, you hear this backfire of water sound, a large bang and then suddenly water fills the tub from the drain. every time. 
 
 
