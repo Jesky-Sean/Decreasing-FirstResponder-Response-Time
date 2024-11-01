@@ -1,6 +1,8 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
 
+one of their favorie things to do now is to clog the tub, so literly as soon as you stand in it, you hear this backfire of water sound, a large bang and then suddenly water fills the tub from the drain. every time. 
+
 
 also, been testing various meds to determine if any help tolerate the cold better - there is one that works really well, but it also needs to be taken a few hours before sleep and then another medication a hour or three before bed. this mix has really been very effective. pain sucks - breathing sucks - dead? nope. sick? nope. more testing needs to be done but i think it has potental. or im just resilient as always...
 
