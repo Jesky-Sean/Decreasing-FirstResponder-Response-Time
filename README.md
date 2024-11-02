@@ -1,6 +1,17 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
 
+just now they are hitting the walls over and over. ya. i have to stay in here and cant move because what they do and they they get mad because their actions cause this only possible action for me once it starts. 
+
+wrote this directly below earlier. forgot to hit enter. 
+
+its prwtty crazy, even if its done once like it just was, and even for a short duration, like it again just was, ive found myself as a sloth as soon as it occurs, i was actually curious as to if duration made a difference at this stage of a broken reality and suffering from the cold and ya.  intresting.anyways, if their logic is "hes in the shower too long" well ya, no shit, when it begins why the fuck move. its just going to follow my steps inside, and then they will turn on the stim #1 as soon as i get out of the bathroom so my body just stops moving and "freezes" is apperently what its called, and my mind will idk. that last part.  idk. i cant figure out how to explain that last part.  its not reality or unreal, it an ethereal state of mind distant from both of usual options. 
+
+
+I really hope this can, or has been studied for the reasons it should be studied. this pain in my chest is really really bad 2 x excedrin 'tenson headache' verion seems to be sufficent to reduce pain and the feeling of cold. throat hurts really bad as well.  breathing is what could only be described as difficult, and thinking? intrestingly inventing is still difficult, but creating upon existing ideas is... well thats also difficult. 
+
+the point is - looks like its going to be another night outside due to downstairs using their methods, even if it was for just a second this time, its indicitive of them not giving a fuck and them going to do it again. 
+
 another night outside, gundys friends back at it as soon as i walk in the living room again. fuck you gundy and your hate group and your horrible tactics. one day everyone will know about you and your group and your actions. fuck you all. 
 
 
