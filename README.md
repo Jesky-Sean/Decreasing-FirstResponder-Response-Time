@@ -1,5 +1,9 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
+
+another night outside, gundys friends back at it as soon as i walk in the living room again. fuck you gundy and your hate group and your horrible tactics. one day everyone will know about you and your group and your actions. fuck you all. 
+
+
 and right back with stimui #1 from the original torture methods they used. same exact pattern in every regard (i mean on a spectrogram, i assure you its the exact same, all my recordings show it perfectly)
 
 but unless you use it like its done here exactly, and done first by patrick (one of gundys good friends, child of about 60yr old) watches and listens everything i did each and every day when i was here, and each time i moved from one room to the next, he and his angry-ugly girl and group (a form or uglyness that occurs when the body doesnt want to hate people, but the mind is so fucked up they cant help it, leading to whar some mistakinglg call bitch face, but context is everything and in their case (the whole group has this fucked up look) the look is actually - "i hate myself and you and the world and i dont give a fuck who finds out im a hateful racist fucking extreamist loser, who wants to hurt others and you spoke up to our face about us being extreamist and a danger to society, in fact the only attention i may ever get, comes from being a racist, so its all im capable of because my family raised me like a bitch, so ya even if i dont know why i feel like this about you, i dont care because i never got enough hugs because even when i was a kid i was so fucked up and hurt people even then even with the decent upbringing i had", face. would continue this treatment when i was unable to move. 
