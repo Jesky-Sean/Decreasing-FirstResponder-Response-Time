@@ -1,5 +1,9 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
+was able to get just a few moments of rest - back outside. gundy. get fucked. fuck you and your hate group. fuck you all. 
+
+and as soon as i walk out the shower, it starts again. and again. and again, somehow all gundys friends know they were doing this, but somehow not her. somehow. 
+
 
 just now they are hitting the walls over and over. ya. i have to stay in here and cant move because what they do and they they get mad because their actions cause this only possible action for me once it starts. 
 
