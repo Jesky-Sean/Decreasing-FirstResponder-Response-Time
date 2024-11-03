@@ -1,6 +1,12 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 >>>
 
+Fuck you gundy you ugly-hateful-dumb-mean-worthless fucking cunt hate group you command with inaction intentionally to accomplish this BS. One day everyone will know. Good luck getting a job. Good luck ever leaving America with you being known as a hate group creator. You’re never going back to Germany.  They even don’t want this shit. Enjoy your stay where you fucking hate life so much you engaged in this shit against me daily. 
+
+gundy dying makes the world a better place so easily, if it wasnt for her, this group would have never happened, but she built this up time after time by inaction and not doing her job even for one second. not once did she actually do her job, and she would just do the "well it looks like im doing my job" i cant wait till people find how how they used kids to accomplish hate crimes, and how depraved gundy and patrick are and how well they worked together to make what they are doing right now. 
+
+gundy dying makes this world so much better. fuck her and her hate and what hwr and her friends keep doing. i wonder when this comes out will you ever see your GC again because everyone in your family will know what you are actually like and what you did. fuck you gundy for keeping this shit up.  one day you and your fucking hateful friends will loose everything and it will be donated to the trash because no one wants anything from people like you. 
+
 pretty ready to throw away my future. fuck you gundy and your friends in your hate group. im pretty ok with loosing everything right now. 
 
 nope still they havnt stopped, gundy is prob. helping them like last time, or idk.  i just know they dont stop and its her friends.  i know one day everyone will know what she did and she wont get away with it. 
