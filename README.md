@@ -1,4 +1,7 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
+>>>
+
+nope still they havnt stopped, gundy is prob. helping them like last time, or idk.  i just know they dont stop and its her friends.  i know one day everyone will know what she did and she wont get away with it. 
 
 was able to get just a few moments of rest - back outside. gundy. get fucked. fuck you and your hate group. fuck you all. 
 
