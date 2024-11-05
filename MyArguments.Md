@@ -20,6 +20,7 @@ And lastly — fuck mass shooters and terrorist - this is just as much a weapon 
 as you can see here: https://youtu.be/CS2mNsTzDpo?feature=shared
 https://youtu.be/4_6x4r2MsGw?feature=shared
 https://youtu.be/FF2D1g8smrY?feature=shared
+(this video displays an edge case, or three that need to be addressed, though again not significant, but still need to be addressed for proper functionality)
 
 
 
