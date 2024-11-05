@@ -18,4 +18,12 @@ And lastly — fuck mass shooters and terrorist - this is just as much a weapon 
 
 
 as you can see here: https://youtu.be/CS2mNsTzDpo?feature=shared
-if my system were in place, the FRs dont have to worry about lane changes, nor someone merging into his lane, as the location of FRs destinations are most often static locations, not high speed chases or the like, when watching this or other videos related, you can clearly see, if the officer didnt have to worry about traffic merging into their lanes or worry about switching lanes, almost no accidents would ever occur, you ever try to pass someone in the hallway snd you both keep picking the same direction? well think about that at high speeds, we can easily ensure that such events almost never happen, and we can ensure better traffic and responce times during emergencies. also, why not. what do we have to loose by reducing responce times in such a simple and easy way. 
+https://youtu.be/4_6x4r2MsGw?feature=shared
+
+
+
+if my system were in place, the FRs dont have to worry about lane changes, nor someone merging into his lane, as the location of FRs destinations are most often static locations, not high speed chases or the like, when watching this or other videos related, you can clearly see, if the officer didnt have to worry about traffic merging into their lanes or worry about switching lanes, almost no accidents would ever occur, you ever try to pass someone in the hallway snd you both keep picking the same direction? well think about that at high speeds, we can easily ensure that such events almost never happen, and we can ensure better traffic and responce times during emergencies. also, why not. what do we have to loose by reducing responce times in such a simple and easy way. think of it, each of these videos would maybe be 1/4th as long with the addition of safty for everyone on the road at the time of its activation. 
+
+there may be a few kinks to work out, but in all, it simulates very well and has a 99.9% chance to reduce responce times significatly - everyone gets an ground-based-airlift for a serious emergencys. 
+
+whats cool regardless, the system we have now is the same exact thing, everything we have now and do now, its the same exact thing but optimized with the spirt of the C++ programming language culture of optimization. 
