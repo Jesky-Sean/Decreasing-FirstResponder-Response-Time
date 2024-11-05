@@ -15,3 +15,7 @@ Little infrastructure cost and or changes, even if adding buffer lines to be use
 And the fact is, the system turns off directly behind them FRs, so the longest wait is for the people at the end of the FR route, while the beginning of the route has very little impact. In addition, FR usually are within a range distributed to achieve faster response times, meaning, more of often than not, the system won’t remain active for long most the time anyways if used. 
 
 And lastly — fuck mass shooters and terrorist - this is just as much a weapon against them as it is a tool for us. 
+
+
+as you can see here: https://youtu.be/CS2mNsTzDpo?feature=shared
+if my system were in place, the FRs dont have to worry about lane changes, nor someone merging into his lane, as the location of FRs destinations are most often static locations, not high speed chases or the like, when watching this or other videos related, you can clearly see, if the officer didnt have to worry about traffic merging into their lanes or worry about switching lanes, almost no accidents would ever occur, you ever try to pass someone in the hallway snd you both keep picking the same direction? well think about that at high speeds, we can easily ensure that such events almost never happen, and we can ensure better traffic and responce times during emergencies. also, why not. what do we have to loose by reducing responce times in such a simple and easy way. 
