@@ -1,6 +1,9 @@
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
->i think and dream of the day i can see her not and only have thy mind with her memorys, but true love from eros golden arrow, shall meet our hearts again when we arrive where time desires and the mind need no longer wander in its search of you.  
+>i think and dream of the day i can see her not and only have thy mind with her memorys, but true love from eros golden arrow, shall meet our hearts again when we arrive where time desires and the mind need no longer wander in its search of her wonder.
+
+
+another night outside. gundys hate group again. another night in the freezing cold because ive been displaced from home because of gundy and the friends she "trusts with her life"
 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
