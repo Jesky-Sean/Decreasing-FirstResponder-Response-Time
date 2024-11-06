@@ -3,7 +3,7 @@
 >i think and dream of the day i can see her not and only have thy mind with her memorys, but true love from eros golden arrow, shall meet our hearts again when we arrive where time desires and the mind need no longer wander in its search of her wonder.
 
 
-another night outside. gundys hate group again. another night in the freezing cold because ive been displaced from home because of gundy and the friends she "trusts with her life"
+another night outside. gundys hate group again. another night in the freezing cold because ive been displaced from home because of gundy and the friends she "trusts with her life" same shit as always. i cant wait for gundy and her group to get whatever the world can offer for them. 
 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
