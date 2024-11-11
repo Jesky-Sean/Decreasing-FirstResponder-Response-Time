@@ -3,8 +3,8 @@ downstairs hasnt stoped since i got in, and https://drive.google.com/file/d/1nGW
 "what are you using"
 "what do you use"
 "oh its these uhh speakers on the wall"
-"hahaha ya speakers, its uhhh its nice" 
-"ummm ya"
+"hahaha ya speakers we're using... its uhhh its nice" 
+"ummm ya, thats all we're using" 
 
 thats one thing. just one thing out of 5TB of data, of true torture. never question the persons reality, especally when you dont have a fucking clue.  
 "obviously its not possible they are doing this and that all day every day" 
