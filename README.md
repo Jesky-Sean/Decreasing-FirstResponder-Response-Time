@@ -1,3 +1,6 @@
+when you ask for help, and the person doesnt understand how hatful people are, not having a clue that hate is like breathing for people and it allows them to do things day after day after day without tire, because of hate, then try and call me delusional only after 5 min of not getting to know me or learn that ive never had signs of mental illness or whatever. nope, just checking boxes without knowing anything. that was the last place i had to go to. now after that, i dont have anywhere.  there is no fucking way ill ever go there or the fucking hospital again - just so you all can disregard all im feeling and make up your own shit. you all took my life together. good on you all. 
+
+
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
 >i think and dream of the day i can see her not and only have thy mind with her memorys, but true love from eros golden arrow, shall meet our hearts again when we arrive where time desires and the mind need no longer wander in its search of her wonder.
