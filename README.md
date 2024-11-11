@@ -1,4 +1,16 @@
-ou and because of my genetic profile, i dont have opiate receptor density, meaning i cant really feel opiates (i cant nod out, or feel good from opiates, ever, this is important when it comes to how ive always been treated), i cant (because i dont have the same brain as you) really show pain the way others do either. meaning when i break a bone, i laugh and smile, and right now my chest, and the rest of my body fucking hurts so bad, and oh ya, i dont show pain like others, so no one treats it, i dont feel pain like others so no one notices it. ever. 
+downstairs hasnt stoped since i got in, and https://drive.google.com/file/d/1nGWGYYF9T0yZ42XkdxSKQWHFHepSAqyL/view?usp=drivesdk this is the two next door and the 3 downstairs talking about how to hurt me and what they are using. ya some context is missing, but i didnt capture this, one of them did. i didnt take this recording. just listen to what they say:
+
+"what are you using"
+"what do you use"
+"oh its these uhh speakers on the wall"
+"hahaha ya speakers, its uhhh its nice" 
+"ummm ya"
+
+thats one thing. just one thing out of 5TB of data, of true torture. never question the persons reality, especally when you dont have a fucking clue.  
+"obviously its not possible they are doing this and that all day every day" 
+well, obviously you fucking suck for trying to disregard my reality when im begging for sanctuary and have evidence of there actions against me; im different. my brain is different. i think differently because im a fuckin inventor - im essentric. but im not fucking crazy or delusional or mad, im injured and tramatized by torture from this hate group and need help, wanted help, not to have someone try and question my reality during such a painful and serious time. 
+
+oh! and because of my genetic profile, i dont have opiate receptor density, meaning i cant really feel opiates (i cant nod out, or feel good from opiates, ever, this is important when it comes to how ive always been treated), i cant (because i dont have the same brain as you) really show pain the way others do either. meaning when i break a bone, i laugh and smile, and right now my chest, and the rest of my body fucking hurts so bad, and oh ya, i dont show pain like others, so no one treats it, i dont feel pain like others so no one notices it. ever. 
 
 only one night outside again last night, and its back (the chest pain) with a fucking vengence, having to do shallow breathing and coughing is deathly painful. but oh ya.  i dont show fuckin pain so no one belives me even though i seriously feel it. 
 
