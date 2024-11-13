@@ -1,4 +1,4 @@
-they are using a new stimuls now, the same as stimuls # one but now modulated in a different way, same exact thing - just modified from the original. 
+they are using a new stimuls now, the same as stimuls # one but now modulated in a different way, same exact thing - just modified from the original. sleeping in the restoom is the only other real option i have right now. so ill do that for my saftey. 
 
 downstairs hasnt stoped since i got in, and https://drive.google.com/file/d/1nGWGYYF9T0yZ42XkdxSKQWHFHepSAqyL/view?usp=drivesdk this is the two next door and the 3 downstairs talking about how to hurt me and what they are using. ya some context is missing, but i didnt capture this, one of them did. i didnt take this recording. just listen to what they say:
 
