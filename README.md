@@ -1,3 +1,5 @@
+still every time i use the restroom in the morning they vibrate the fuck of the room like every morning. 
+
 they are using a new stimuls now, the same as stimuls # one but now modulated in a different way, same exact thing - just modified from the original. sleeping in the restoom is the only other real option i have right now. so ill do that for my saftey. 
 they arnt placing the 3rd stimuls dirextly under me anymore, as such the new way, is the first way, and its like a wide net across the floor   non stop. id rather sleep in the cold and finish this. 
 
