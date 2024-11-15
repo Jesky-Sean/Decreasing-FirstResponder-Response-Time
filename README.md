@@ -276,7 +276,7 @@ maybe TODO's:
 
    <!> no one will be able to say they never helped the cops, presidents, feds, or their fellow man/or women, to me just for that laugh, it would be worth it - that would be really funny right? we all do something good, for the first time in society we all all doing something good for everyone else with no cost or payment to the helpers and helpies, thats some real hippy stuff 😂.    
    
-    (never for VIPs please!... i mean, just me so i can see how it works....). 
+    (never for VVIPs please!... i mean, just me so i can see how it works....). 
 
 -----
 
