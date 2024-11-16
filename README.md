@@ -1,3 +1,6 @@
+there really is no fucking way to describe how horrible everything around my immeadiate area feels, everything i touch its the most extreame of extreams right now and earlier today from her hate group 
+
+
 they are so fucking worse right now than ever. fuck you gundy and your hate group and your gossip and your Rumors.  nothing i can do drowns out any of it, not hard hitting water, nothing. its back to that level. 
 
 so after slamming every single thing downstairs like they always did previously, they are back to these fucking specific stimul#3 and stimulus #1 but simultaneously now. 
