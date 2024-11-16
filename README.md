@@ -1,3 +1,5 @@
+so after slamming every single thing downstairs like they always did previously, they are back to these fucking specific stimul#3 and stimulus #1 but simultaneously now. 
+
 they still wont fucking stop when im in the place. going to have to sleep outside. just like gundy and patrick and their friends and family involved in this shit will have to sleep outside soon. fuck these hate crime fucks who think they will get away with any of this. fuck yiu gundy i hope yiu fuckn die tonight. 
 
 still every time i use the restroom in the morning they vibrate the fuck of the room like every morning. 
