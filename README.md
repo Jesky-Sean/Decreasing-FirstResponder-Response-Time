@@ -1,3 +1,5 @@
+again their main focus is the restroom for some reasion, they are so fuckin oht of their minds, as a group, they are all the same person individually. 
+
 there really is no fucking way to describe how horrible everything around my immeadiate area feels, everything i touch its the most extreame of extreams right now and earlier today from her hate group 
 
 
