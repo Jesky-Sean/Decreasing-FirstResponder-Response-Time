@@ -1,3 +1,5 @@
+you ugly disgusting bitch you wrinkly old fucking bitch. you ugly alcoholic worthless bitch i cant wait to see uou fucking dead for this down theree. fuxk you all im dying tonight. 
+
 they put it jn this room now downstairs. fuck you tundy uou dead. fuck you all your all fucking dead with me im so fucking done and sick and tiednfor suffimg.  fuck uou gundy.  
 
 hop you ducking die for hurting me every chance you got gundy snd snd patrixk wnd the chminy loose downstairs. fuck her downstiars for this shit. fuck you all for this. im so ahappg your ablut tod ie. 
