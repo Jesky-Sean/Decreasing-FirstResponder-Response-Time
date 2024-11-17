@@ -1,3 +1,11 @@
+is this invention enough to save my life? it ensures we always know exactly were our troops are relative to our enemy at all times and allows predet. comms through mission planning (rough draft, give me time and ill have all the principles done if you all want) we will never have any troops on our side killed again by accident. (rare but its a way to ensure it nevee happens, a gift for us to use to make our allies hard for war, if they are scared)
+
+![image](https://github.com/user-attachments/assets/124b8220-faf7-48b9-8743-447972bd980e)
+
+
+   
+
+
 i csnt fucking wait to take my fucking life and thrownthe fucking blood on gundys family as they walk outside. fuck you sll. 
 
 
