@@ -1,3 +1,5 @@
+please just tell me what country yiu want destroyed and ill fucking do it. please. just say the fucking name and ill work on solving it. please. 
+
 what do you want! what can i make or desgij to make this rnd! do you want all ky algorithms all of them ill throw them im the air on papr or carve them into my body kill myself and you can take posetion of ky nody from ther and all my work, what you want desgined! ill create angthing anyone wqnts how many lives do tou want taken or aaved helped or destroyvd wuar xiry or country do giu want me to take over ill solve that tok.  please what d i have to do to escape this. i want sanctuary! please! 
 
 we can deploy missles or other weapons right away, we can reduxe the time it takes dor it fo go fron TIC to "clear". (if EMP is used on our troops, this could be a small device that is encased,as such allows its use even after an EMP has occured, or other situations idk.)  it removes the big and little picture if requred and goes straight for the kill. (fuck yiu gundy for this tortur shit fuxk uou downatairs for not stopping. fuck you all) 
