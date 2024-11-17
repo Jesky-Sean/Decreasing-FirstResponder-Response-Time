@@ -1,3 +1,5 @@
+you are fucking cumt gundy. you and all your friends. fuck you all and fuck your lives for what you do to me all day every fucking fay long. you all deserve to fucking die for being so fucking evil and cruel. i have nowhefe to fucking go, or rest   fuck you cunts. 
+
 you ugly disgusting bitch you wrinkly old fucking bitch. you ugly alcoholic worthless bitch i cant wait to see uou fucking dead for this down theree. fuxk you all im dying tonight. 
 
 they put it jn this room now downstairs. fuck you tundy uou dead. fuck you all your all fucking dead with me im so fucking done and sick and tiednfor suffimg.  fuck uou gundy.  
