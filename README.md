@@ -1,4 +1,6 @@
-i hop you ducking die for hurting me every chance you got gundy snd snd patrixk wnd the chminy loose downstairs. fuck her downstiars for this shit. fuck you all for this. im so ahappg your ablut tod ie. 
+they put it jn this room now downstairs. fuck you tundy uou dead. fuck you all your all fucking dead with me im so fucking done and sick and tiednfor suffimg.  fuck uou gundy.  
+
+hop you ducking die for hurting me every chance you got gundy snd snd patrixk wnd the chminy loose downstairs. fuck her downstiars for this shit. fuck you all for this. im so ahappg your ablut tod ie. 
 
 
 fuck tundy and her friends downstairs for this shit.  i hope you fuckin die and left in the street like a fuckin worthless fuck your group is. for what they are doing right now. fuck that lady down stairs and patrick for first using this stimlus. fuck you all. my death is on you gundy. i hope someone takes your fucking life tomorrow early fucking morning. oh thats now. 
