@@ -1,3 +1,6 @@
+i hop you ducking die for hurting me every chance you got gundy snd snd patrixk wnd the chminy loose downstairs. fuck her downstiars for this shit. fuck you all for this. im so ahappg your ablut tod ie. 
+
+
 fuck tundy and her friends downstairs for this shit.  i hope you fuckin die and left in the street like a fuckin worthless fuck your group is. for what they are doing right now. fuck that lady down stairs and patrick for first using this stimlus. fuck you all. my death is on you gundy. i hope someone takes your fucking life tomorrow early fucking morning. oh thats now. 
 
 that stimulus is so fucking painful. i cant find where its coming from this time but it fucking hurts. fuck you gundy and uour friemds. fuck you all duck ou all. 
