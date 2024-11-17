@@ -1,3 +1,5 @@
+i hope you fucking die downstairs and gundy for this. when i kill myself im throwing my blood on your whole fucking family.  fuck uou all for this shit. fuck your lives in every way for making me die thhs way fuck you. i cant even invent anymorezx, i cant fucking think, youve taken evrtyhing from me tundy and patrick. youve taken everything from me. you all should habe just killed me yesterday. 
+
 please just tell me what country yiu want destroyed and ill fucking do it. please. just say the fucking name and ill work on solving it. please. 
 
 what do you want! what can i make or desgij to make this rnd! do you want all ky algorithms all of them ill throw them im the air on papr or carve them into my body kill myself and you can take posetion of ky nody from ther and all my work, what you want desgined! ill create angthing anyone wqnts how many lives do tou want taken or aaved helped or destroyvd wuar xiry or country do giu want me to take over ill solve that tok.  please what d i have to do to escape this. i want sanctuary! please! 
