@@ -3,9 +3,6 @@ is this invention enough to save my life? it ensures we always know exactly were
 ![image](https://github.com/user-attachments/assets/124b8220-faf7-48b9-8743-447972bd980e)
 
 
-   
-
-
 i csnt fucking wait to take my fucking life and thrownthe fucking blood on gundys family as they walk outside. fuck you sll. 
 
 
