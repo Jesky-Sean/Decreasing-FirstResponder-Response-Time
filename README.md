@@ -1,3 +1,6 @@
+i csnt fucking wait to take my fucking life and thrownthe fucking blood on gundys family as they walk outside. fuck you sll. 
+
+
 no fucking way they can contine to do this to me day after fucking day. after fucking day after fucking day after fucking day like groundhog day, fuck you all uou worthless ugly dumb angy and hateful fuckss. 
 
 you are fucking cumt gundy. you and all your friends. fuck you all and fuck your lives for what you do to me all day every fucking fay long. you all deserve to fucking die for being so fucking evil and cruel. i have nowhefe to fucking go, or rest   fuck you cunts. 
