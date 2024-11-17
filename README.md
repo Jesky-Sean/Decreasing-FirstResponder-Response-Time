@@ -1,3 +1,5 @@
+notwithstanding, this is still ethical even though it takes lives by its direct use, just dont go to war with my country and no one dies - see makes it an ethical choice to not mess with me or my country.   (true but also a little lol)
+
 here we go again, downstairs.  fuck you all. what 3 minuts of it off now again.  hope you fucking firn. die. 
 
 
