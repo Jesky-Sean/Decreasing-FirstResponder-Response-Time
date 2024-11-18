@@ -24,6 +24,7 @@ using minimal systems if that sort of thing could happen.
 (needs a bit of refining but its all there for right now, enough to be made into reality. please save my life. please help stop them and this suffering. ill do anything for anyone. anythkng at all i swear.  
 
 ![image](https://github.com/user-attachments/assets/124b8220-faf7-48b9-8743-447972bd980e)
+![image](https://github.com/user-attachments/assets/e850c47b-086a-4da9-835a-73d2d6b3ba23)
 
 
 i csnt fucking wait to take my fucking life and thrownthe fucking blood on gundys family as they walk outside. fuck you sll. 
