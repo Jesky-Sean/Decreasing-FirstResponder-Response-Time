@@ -1,3 +1,6 @@
+sorry to so many, especally M: im sorry for the dedication, im sorry for everything - i know why you turned away so fast and i would have done the same; tonight ill be no bother for you or anyone - i was tortured so bad i thought i could be loved by someone, and as it turns out, im delusional and as such i have a lot to apologis for after being tortured. its not you like i said, im just a fuck up and ive always been unwanted and undesired, torture made me reach for anyone or anything it seems due to delusions of hope and love. im sorry and ill never hurt you again. 
+
+
 notwithstanding, this is still ethical even though it takes lives by its direct use, just dont go to war with my country and no one dies - see makes it an ethical choice to not mess with me or my country.   (true but also a little lol)
 
 here we go again, downstairs.  fuck you all. what 3 minuts of it off now again.  hope you fucking firn. die. 
