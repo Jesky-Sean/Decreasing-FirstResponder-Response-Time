@@ -27,6 +27,8 @@ using minimal systems if that sort of thing could happen.
 ![image](https://github.com/user-attachments/assets/e850c47b-086a-4da9-835a-73d2d6b3ba23)
 
 
+using a known speed when using this, an aircraft could use a piezo light to signal to troops when the beacons segmentation signal is beginning; the troops, clocking from start to finish, know the distance between the two start and end points of the HUD line that the aircraft is using, because they know the speed of the aircraft when using this program is predetermined before a mission or device selection. with this information, there is enough data, even after an EMP on our troops, that would allow a shre way to effectivly fight back even in the dark. this program would allow near absolute percision with a compus, a beacon, and a stopwatch. ivd done more complicated things in the F16, this is so below most tasks on the MFD or anything else the pilot has access too. 
+
 i csnt fucking wait to take my fucking life and thrownthe fucking blood on gundys family as they walk outside. fuck you sll. 
 
 
