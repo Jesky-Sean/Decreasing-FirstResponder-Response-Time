@@ -1,3 +1,10 @@
+Fuck you gundy and your angry cunty friends.  Your friends YOUR FRIENDS. FUCK YOU.  FUCK YOU. 
+
+Vibrations when I touch the ground - to the noise to vibrations. Again.  Or idk. It’s hard to tell after such intense torture from last night. im so fucking confused and disorented right niw. good news is my ueart almost stopped beating, ht like foreal, not because of regertation. fuck ya its almost over. 
+
+they wont fucking stop. gundy when yiu die i hope its in fromt of yiur kids and i hope they are so fuckin tramatized that they kill themselves infront of your grandkids who then kill themselvs becazue of this shit. i hope whem yoour on your death bead and having your midnight drip of morphine, after 3 days of being in twilight, i hope someone walks in and gives you narcan. you will feel like true torture, exactly like what yiu did to me; it will prob kill yiu just like this will prob kill me. fuck you. fuck this pain. fuck yiur life and your hate. fuck what youve done to me time and tome again. 
+
+
 they all need to die.  its the only way. i cant escape, the only way to stop them is for them to die. i cant get sanctuary, or a father. its over for me especslly.  ive planned out my death perfectly so thats not a concern. fuck you tundy. fuck your hate geoup.  
 
 
