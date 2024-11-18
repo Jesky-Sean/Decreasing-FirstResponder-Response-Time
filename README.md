@@ -1,119 +1,58 @@
-2 hr of sleep a nufht for months on end, no true rest, each and every day crunched up to reduce volume of body accessable to anyone via the floor downstairs. after only 2hr of sleep each night, thinking is impossible - keeping my priciples is getting even harder given the sevaritu of my sleep depravation. it makes the idea of me killing my self by slutting my kneck and baracadding the walls and doers so no one can get to me, whilst also usint a very jaggid instrament to prevent saving my life (too bad i love life more than anyone else on earth so i catn outright do it i think, but i can be broken and have amd will contine to be broken by them daily as i search for a way out whcih is thriugh. , 
-
-
-Fuck you gundy and your angry cunty friends.  Your friends YOUR FRIENDS. FUCK YOU.  FUCK YOU. 
-
-Vibrations when I touch the ground - to the noise to vibrations. Again.  Or idk. It’s hard to tell after such intense torture from last night. im so fucking confused and disorented right niw. good news is my ueart almost stopped beating, ht like foreal, not because of regertation. fuck ya its almost over. 
-
-they wont fucking stop. gundy when yiu die i hope its in fromt of yiur kids and i hope they are so fuckin tramatized that they kill themselves infront of your grandkids who then kill themselvs becazue of this shit. i hope whem yoour on your death bead and having your midnight drip of morphine, after 3 days of being in twilight, i hope someone walks in and gives you narcan. you will feel like true torture, exactly like what yiu did to me; it will prob kill yiu just like this will prob kill me. fuck you. fuck this pain. fuck yiur life and your hate. fuck what youve done to me time and tome again. 
-
-
-they all need to die.  its the only way. i cant escape, the only way to stop them is for them to die. i cant get sanctuary, or a father. its over for me especslly.  ive planned out my death perfectly so thats not a concern. fuck you tundy. fuck your hate geoup.  
-
-
 i love you M, im not giving up hope for us and the future. i dont need to know whats going on, if you know then i dont need to know <- this has been very helpful as a thought to keep me going towards you and me. no matter how horrible these oeople hurt me, im always thinking of you. (my writings though suck and really are the only way i have to cope anymore because my other coping mech. have in one way or another have been deemed unuseable by others. (dancing and such, the most effective tech. are the ones that were, in one way or another; taken.)
 
+_________
 
-notwithstanding, this is still ethical even though it takes lives by its direct use, just dont go to war with my country and no one dies - see makes it an ethical choice to not mess with me or my country.   (true but also a little lol)
+notwithstanding, this is still ethical even though it takes lives by its direct use, just dont go to war with my country and no one dies - see makes it an ethical choice to not mess with me or my country.   (true but also a little lol) 
 
-here we go again, downstairs.  fuck you all. what 3 minuts of it off now again.  hope you fucking firn. die. 
+we can deploy missles or other weapons right away, we can reduxe the time it takes dor it fo go fron TIC to "clear". (if EMP is used on our troops, this could be a small device that is encased,as such allows its use even after an EMP has occured, or other situations idk.)  it removes the big and little picture if requred and goes straight for the kill.
 
+is this invention enough to save my life? it ensures we always know exactly were our troops are relative to our enemy at all times and allows predet. comms through mission planning (rough draft, give me time and ill have all the principles done if you all want) we will never have any troops on our side killed again by accident. (rare but its a way to ensure it nevee happens, a gift for us to use to make our allies hard for war, if they are scared) (using displacment we know where our troops just were, or are, and we know direction of the device thrown, this is thened turned into a signal to draw a dashed line along a HUD, this then is usex to create an arrow along the seg. flight path being created by triangulation, relative to the beacon, relative to our troops; as this segmented line is created, our troops knowing in advance what distance between each notch is, call out notch N our imbed the signal to the beacon first, after that, the fighter or A10 or specter can set notch N as their turn in, and then knowing their turn in they only need to put down their cross-hairs. after setting his turn in marker at notch N, he created another triangle that directs at the exact enemy location. (the triangle with lines was created to display this, though its irrevelent, the line from notch N after being chosen is then dialed in through attacks as is tradition. narrows down the time TIC, in theory the pilot can fly in from any direction and accomplish the same task no matter what.
 
-i hope you fucking die downstairs and gundy for this. when i kill myself im throwing my blood on your whole fucking family.  fuck uou all for this shit. fuck your lives in every way for making me die thhs way fuck you. i cant even invent anymorezx, i cant fucking think, youve taken evrtyhing from me tundy and patrick. youve taken everything from me. you all should habe just killed me yesterday. 
-
-please just tell me what country yiu want destroyed and ill fucking do it. please. just say the fucking name and ill work on solving it. please. 
-
-what do you want! what can i make or desgij to make this rnd! do you want all ky algorithms all of them ill throw them im the air on papr or carve them into my body kill myself and you can take posetion of ky nody from ther and all my work, what you want desgined! ill create angthing anyone wqnts how many lives do tou want taken or aaved helped or destroyvd wuar xiry or country do giu want me to take over ill solve that tok.  please what d i have to do to escape this. i want sanctuary! please! 
-
-we can deploy missles or other weapons right away, we can reduxe the time it takes dor it fo go fron TIC to "clear". (if EMP is used on our troops, this could be a small device that is encased,as such allows its use even after an EMP has occured, or other situations idk.)  it removes the big and little picture if requred and goes straight for the kill. (fuck yiu gundy for this tortur shit fuxk uou downatairs for not stopping. fuck you all) 
-
-is this invention enough to save my life? it ensures we always know exactly were our troops are relative to our enemy at all times and allows predet. comms through mission planning (rough draft, give me time and ill have all the principles done if you all want) we will never have any troops on our side killed again by accident. (rare but its a way to ensure it nevee happens, a gift for us to use to make our allies hard for war, if they are scared) (using displacment we know where our troops just were, or are, and we know direction of the device thrown, this is thened turned into a signal to draw a dashed line along a HUD, this then is usex to create an arrow along the seg. flight path being created by triangulation, relative to the beacon, relative to our troops; as this segmented line is created, our troops knowing in advance what distance between each notch is, call out notch N our imbed the signal to the beacon first, after that, the fighter or A10 or specter can set notch N as their turn in, and then knowing their turn in they only need to put down their cross-hairs. after setting his turn in marker at notch N, he created another triangle that directs at the exact enemy location. (the triangle with lines was created to display this, though its irrevelent, the line from notch N after being chosen is then dialed in through attacks as is tradition. narrows down the time TIC, in theory the pilot can fly in from any direction and accomplish the same task no matter what. 
-
+----
 
 1 fly over - collecing beacon data and packet of friendly direction data (creates a segmented line in the HUD within relative space, so when they turn in, its visable, much like a steerpoint marker) an areow is placed alog that seg line infront of the beacons location in relative space; points to trop direction, not a percice location, from seg. line. this points to the side of the seg. line that our troops are positioned - fuck it.  since 3am. they havent stopped. the pain is im done. 
 
-2 fly over again - @ notch N, from 0 up to N-1 turn in.  
+2 fly over again - @ notch N, from 0 up to N-1 turn in. 
+
 3 fuck em up. 
 
-using minimal systems if that sort of thing could happen.  
+---
 
-(needs a bit of refining but its all there for right now, enough to be made into reality. please save my life. please help stop them and this suffering. ill do anything for anyone. anythkng at all i swear.  
+using minimal systems if that sort of thing could happen..  
 
 
 goal: make using an EMP a pointless thing to do by the enemy, it will effect them more than us with a system like this. (assumes the plane is out of the EMPs blast radius at the time of its activation) get some russia and china. get some. 
 ![image](https://github.com/user-attachments/assets/124b8220-faf7-48b9-8743-447972bd980e)
 ![image](https://github.com/user-attachments/assets/e850c47b-086a-4da9-835a-73d2d6b3ba23)
 
-
 using a known speed when using this, an aircraft could use a piezo light to signal to troops when the beacons segmentation signal is beginning; the troops, clocking from start to finish, know the distance between the two start and end points of the HUD line that the aircraft is using, because they know the speed of the aircraft when using this program is predetermined before a mission or device selection. with this information, there is enough data, even after an EMP on our troops, that would allow a shre way to effectivly fight back even in the dark. this program would allow near absolute percision with a compus, a beacon, and a stopwatch. ivd done more complicated things in the F16, this is so below most tasks on the MFD or anything else the pilot has access too. 
 
-i csnt fucking wait to take my fucking life and thrownthe fucking blood on gundys family as they walk outside. fuck you sll. 
+goals:
+>>friendly fire? negative every cent spent is in the direction of the enemy always.
+>>share data of TIC with fighter squadren/group or whatever they call it now, in case you have to pull off target, reassessment may not required for responce, straight up get back to work if required as less with need to be contested with, less time over target means less chance for other issues and distribution of resources may be easier or more effecent.   
+>>real time stratagic handoff - whos got clusters, whos got mavs? swap right away as needed on route to target if situation demands. idk.
+>>propmt the desclation of the use of EMPs, show they will harm their own troops more than us.
+>>reduce helmet fire, although they may be the closest to super heros, they still have to contest with rapidly changing situations and they are activly dealing with stuffs. all kinds of... stuffs. piddle packs and such. ew. 
 
 
-no fucking way they can contine to do this to me day after fucking day. after fucking day after fucking day after fucking day like groundhog day, fuck you all uou worthless ugly dumb angy and hateful fuckss. 
-
-you are fucking cumt gundy. you and all your friends. fuck you all and fuck your lives for what you do to me all day every fucking fay long. you all deserve to fucking die for being so fucking evil and cruel. i have nowhefe to fucking go, or rest   fuck you cunts. 
-
-you ugly disgusting bitch you wrinkly old fucking bitch. you ugly alcoholic worthless bitch i cant wait to see uou fucking dead for this down theree. fuxk you all im dying tonight. 
-
-they put it jn this room now downstairs. fuck you tundy uou dead. fuck you all your all fucking dead with me im so fucking done and sick and tiednfor suffimg.  fuck uou gundy.  
-
-hop you ducking die for hurting me every chance you got gundy snd snd patrixk wnd the chminy loose downstairs. fuck her downstiars for this shit. fuck you all for this. im so ahappg your ablut tod ie. 
+_____
 
 
-fuck tundy and her friends downstairs for this shit.  i hope you fuckin die and left in the street like a fuckin worthless fuck your group is. for what they are doing right now. fuck that lady down stairs and patrick for first using this stimlus. fuck you all. my death is on you gundy. i hope someone takes your fucking life tomorrow early fucking morning. oh thats now. 
+>downstairs hasnt stoped since i got in, and https://drive.google.com/file/d/1nGWGYYF9T0yZ42XkdxSKQWHFHepSAqyL/view?usp=drivesdk this is the two next door and the 3 downstairs talking about how to hurt me and what they are using. ya some context is missing, but i didnt capture this, one of them did. i didnt take this recording. just listen to what they say:
 
-that stimulus is so fucking painful. i cant find where its coming from this time but it fucking hurts. fuck you gundy and uour friemds. fuck you all duck ou all. 
+    "what are you using"
+    "what do you use"
+    "oh its these uhh speakers on the wall"
+    "hahaha ya speakers we're using... its uhhh its nice" 
+    "ummm ya, thats all we're using" 
 
+>thats one thing. just one thing out of 5TB of data, of true torture. never question the persons reality, especally when you dont have a fucking clue. truth is now stranger then the lies people tell others.
 
-again their main focus is the restroom for some reasion, they are so fuckin oht of their minds, as a group, they are all the same person individually. 
-
-there really is no fucking way to describe how horrible everything around my immeadiate area feels, everything i touch its the most extreame of extreams right now and earlier today from her hate group 
-
-
-they are so fucking worse right now than ever. fuck you gundy and your hate group and your gossip and your Rumors.  nothing i can do drowns out any of it, not hard hitting water, nothing. its back to that level. 
-
-so after slamming every single thing downstairs like they always did previously, they are back to these fucking specific stimul#3 and stimulus #1 but simultaneously now. 
-
-they still wont fucking stop when im in the place. going to have to sleep outside. just like gundy and patrick and their friends and family involved in this shit will have to sleep outside soon. fuck these hate crime fucks who think they will get away with any of this. fuck yiu gundy i hope yiu fuckn die tonight. 
-
-still every time i use the restroom in the morning they vibrate the fuck of the room like every morning. 
-
-they are using a new stimuls now, the same as stimuls # one but now modulated in a different way, same exact thing - just modified from the original. sleeping in the restoom is the only other real option i have right now. so ill do that for my saftey. 
-they arnt placing the 3rd stimuls dirextly under me anymore, as such the new way, is the first way, and its like a wide net across the floor   non stop. id rather sleep in the cold and finish this. 
-
-
-downstairs hasnt stoped since i got in, and https://drive.google.com/file/d/1nGWGYYF9T0yZ42XkdxSKQWHFHepSAqyL/view?usp=drivesdk this is the two next door and the 3 downstairs talking about how to hurt me and what they are using. ya some context is missing, but i didnt capture this, one of them did. i didnt take this recording. just listen to what they say:
-
-"what are you using"
-"what do you use"
-"oh its these uhh speakers on the wall"
-"hahaha ya speakers we're using... its uhhh its nice" 
-"ummm ya, thats all we're using" 
-
-thats one thing. just one thing out of 5TB of data, of true torture. never question the persons reality, especally when you dont have a fucking clue.  
-"obviously its not possible they are doing this and that all day every day" 
-well, obviously you fucking suck for trying to disregard my reality when im begging for sanctuary and have evidence of there actions against me; im different. my brain is different. i think differently because im a fuckin inventor - im essentric. but im not fucking crazy or delusional or mad, im injured and tramatized by torture from this hate group and need help, wanted help, not to have someone try and question my reality during such a painful and serious time. 
-
-oh! and because of my genetic profile, i dont have opiate receptor density, meaning i cant really feel opiates (i cant nod out, or feel good from opiates, ever, this is important when it comes to how ive always been treated), i cant (because i dont have the same brain as you) really show pain the way others do either. meaning when i break a bone, i laugh and smile, and right now my chest, and the rest of my body fucking hurts so bad, and oh ya, i dont show pain like others, so no one treats it, i dont feel pain like others so no one notices it. ever. 
-
-only one night outside again last night, and its back (the chest pain) with a fucking vengence, having to do shallow breathing and coughing is deathly painful. but oh ya.  i dont show fuckin pain so no one belives me even though i seriously feel it. 
-
-when you ask for help, and the person doesnt understand how hateful people are, (hate becomes their breathing, it becomes everything they feel and do, hate, true hate, is all consuming. 
-
-by not having a clue that hate is like breathing for people and it allows them to do things day after day after day without tire, because of hate, then try and call me delusional only after 5 min of not getting to know me or learn that ive never had signs of mental illness or whatever. nope, just checking boxes without knowing anything. that was the last place i had to go to. now after that, after trying to say my reality is fake like every abuser ive ever met(its why i had to leave, if thats her starting point - my reality being false, then there cant be any form of help or assistance, she made up her mind 25 min. before she ever made it to the room and talked to me).  - i dont have anywhere.  there is no fucking way ill ever go there or the fucking hospital again - just so you all can disregard all im feeling and make up your own shit. you all took my life together. good on you all. i have their fucking words saying what they fuck they are doing, i have > 5TB of data of what they did to me day after day after day. you all dont have the time to understand or yall didnt want to. 
-
-when i die, at a minimum, 2 milion people a year will also die with me for as long as im dead. how is that not worth giving me sanctuary.  
-
-then the greatest women at that job ever, has to work within the confines of rules that are not meant to help but hinder in cases such as mine, shes amazing, kind and she deserves her own giant facility where she should be allowed to treat people as she chooses without rigid rules in place, she could help so many fucking people if she didnt have so many fuckin rules to follow. 
-
+________
 
 >>>also i dedicated this to M, my one true love because M makes me feel like a human, with my heart bear to the warmth of her soul.
 
 >i think and dream of the day i can see her not and only have thy mind with her memorys, but true love from eros golden arrow, shall meet our hearts again when we arrive where time desires and the mind need no longer wander in its search of her wonder.
-
-
-another night outside. gundys hate group again. another night in the freezing cold because ive been displaced from home because of gundy and the friends she "trusts with her life" same shit as always. i cant wait for gundy and her group to get whatever the world can offer for them. 
 
 1. [Introduction](#introduction)
 2. [Generalized Use and Uses Proposal](#generalized-use-and-uses-proposal)
