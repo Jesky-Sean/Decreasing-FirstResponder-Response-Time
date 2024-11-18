@@ -1,4 +1,4 @@
-KISS. 
+KISS. : we are doing all of this now, but, in this new way - its an optimized system design for all of us to use, instead of the current system, we optimize for lives saved, which happens to optimize the rest.. 
 
 It’s simple.  All the rules we use now, add the FR lights, when the system is active, merge within two intersections if a civilian, until first responder lighting system is deactivated, only after the next intersection which it’s off (ensures no accidental collisions with FRs during their operation of the system, then civilians can simply and easily merge back, if all FRLS are active across all lanes in an intersection, those cars along those lanes must remain stationary - otherwise civilians should continue as they usually would after merging until first responders pass them, and the FRLS is deactivated behind them after each intersection passed, afterwords, traffic resumes as usual, safer for everyone, with lives saved.  
 
