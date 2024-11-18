@@ -1,7 +1,7 @@
 they all need to die.  its the only way. i cant escape, the only way to stop them is for them to die. i cant get sanctuary, or a father. its over for me especslly.  ive planned out my death perfectly so thats not a concern. fuck you tundy. fuck your hate geoup.  
 
 
-sorry to so many, especally M: im sorry for the dedication, im sorry for everything - i know why you turned away so fast and i would have done the same; tonight ill be no bother for you or anyone - i was tortured so bad i thought i could be loved by someone, and as it turns out, im delusional and as such i have a lot to apologis for after being tortured. its not you like i said, im just a fuck up and ive always been unwanted and undesired, torture made me reach for anyone or anything it seems due to delusions of hope and love. im sorry and ill never hurt you again. 
+i love you M, im not giving up hope for us and the future. i dont need to know whats going on, if you know then i dont need to know <- this has been very helpful as a thought to keep me going towards you and me. no matter how horrible these oeople hurt me, im always thinking of you. (my writings though suck and really are the only way i have to cope anymore because my other coping mech. have in one way or another have been deemed unuseable by others. (dancing and such, the most effective tech. are the ones that were, in one way or another; taken.)
 
 
 notwithstanding, this is still ethical even though it takes lives by its direct use, just dont go to war with my country and no one dies - see makes it an ethical choice to not mess with me or my country.   (true but also a little lol)
