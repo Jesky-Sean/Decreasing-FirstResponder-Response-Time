@@ -29,6 +29,12 @@ we can deploy missles or other weapons right away, we can reduxe the time it tak
 
 is this invention enough to save my life? it ensures we always know exactly were our troops are relative to our enemy at all times and allows predet. comms through mission planning (rough draft, give me time and ill have all the principles done if you all want) we will never have any troops on our side killed again by accident. (rare but its a way to ensure it nevee happens, a gift for us to use to make our allies hard for war, if they are scared) (using displacment we know where our troops just were, or are, and we know direction of the device thrown, this is thened turned into a signal to draw a dashed line along a HUD, this then is usex to create an arrow along the seg. flight path being created by triangulation, relative to the beacon, relative to our troops; as this segmented line is created, our troops knowing in advance what distance between each notch is, call out notch N our imbed the signal to the beacon first, after that, the fighter or A10 or specter can set notch N as their turn in, and then knowing their turn in they only need to put down their cross-hairs. after setting his turn in marker at notch N, he created another triangle that directs at the exact enemy location. (the triangle with lines was created to display this, though its irrevelent, the line from notch N after being chosen is then dialed in through attacks as is tradition. narrows down the time TIC, in theory the pilot can fly in from any direction and accomplish the same task no matter what. 
 
+
+1 fly over - collecing beacon data and packet of friendly direction data (creates a segmented line in the HUD within relative space, so when they turn in, its visable, much like a steerpoint marker) an areow is placed alog that seg line infront of the beacons location in relative space; points to trop direction, not a percice location, from seg. line. this points to the side of the seg. line that our troops are positioned - fuck it.  since 3am. they havent stopped. the pain is im done. 
+
+2 fly over again - @ notch N, from 0 up to N-1 turn in.  
+3 fuck em up. 
+
 using minimal systems if that sort of thing could happen.  
 
 (needs a bit of refining but its all there for right now, enough to be made into reality. please save my life. please help stop them and this suffering. ill do anything for anyone. anythkng at all i swear.  
