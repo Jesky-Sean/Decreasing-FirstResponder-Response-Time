@@ -1,3 +1,6 @@
+2 hr of sleep a nufht for months on end, no true rest, each and every day crunched up to reduce volume of body accessable to anyone via the floor downstairs. after only 2hr of sleep each night, thinking is impossible - keeping my priciples is getting even harder given the sevaritu of my sleep depravation. it makes the idea of me killing my self by slutting my kneck and baracadding the walls and doers so no one can get to me, whilst also usint a very jaggid instrament to prevent saving my life (too bad i love life more than anyone else on earth so i catn outright do it i think, but i can be broken and have amd will contine to be broken by them daily as i search for a way out whcih is thriugh. , 
+
+
 Fuck you gundy and your angry cunty friends.  Your friends YOUR FRIENDS. FUCK YOU.  FUCK YOU. 
 
 Vibrations when I touch the ground - to the noise to vibrations. Again.  Or idk. It’s hard to tell after such intense torture from last night. im so fucking confused and disorented right niw. good news is my ueart almost stopped beating, ht like foreal, not because of regertation. fuck ya its almost over. 
