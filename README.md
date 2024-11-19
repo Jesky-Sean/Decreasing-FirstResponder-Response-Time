@@ -1,3 +1,6 @@
+wont stop thus fuking pain. incant wait till you tfucking zebra fluffy dragon uou gindy. fuck this pain. fuck your life. 
+
+
 dog fight dude tells on himself by lyijg to police over BS, then patrick is the snitxh through gossop, and rhen becomes a cowardbitch changing his apperemce for the grand jury snitching on all you.  its fucking over idiots. you got played by patrick and gundy. 
 
 and thwy are starting up again. i cant wait till i fluffy zebra pin you all. duck you gundy and this geoup of losers your maintain. fuck you all and whqt your doing right now out of hate. fuck uou all. watch. everyone will onow gundy and patrick how and what you did.  my name isnt on any papers, you know who is!  get fucked. its about to be ofer for yoy. fuck this pain gundy. i will fluffy dragon zebra pin bin you all.  
