@@ -1,3 +1,5 @@
+now they switched to a super loud machine noise.  fuck this pain.  fuck you gundy. im going to zebra pin you all to the fluffly dragon bitch. 
+
 wont stop thus fuking pain. incant wait till you tfucking zebra fluffy dragon uou gindy. fuck this pain. fuck your life. 
 
 
