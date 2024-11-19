@@ -1,3 +1,6 @@
+another fucking night gundy. your fucing hate group, another fucking night.  fucking zibra pins and fluffy dragons.  
+
+
 i love you M, im not giving up hope for us and the future. i dont need to know whats going on, if you know then i dont need to know <- this has been very helpful as a thought to keep me going towards you and me. no matter how horrible these oeople hurt me, im always thinking of you. (my writings though suck and really are the only way i have to cope anymore because my other coping mech. have in one way or another have been deemed unuseable by others. (dancing and such, the most effective tech. are the ones that were, in one way or another; taken.)
 
 _________
