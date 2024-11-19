@@ -27,6 +27,8 @@ i love you M, im not giving up hope for us and the future. i dont need to know w
 
 _________
 
+this cough is really getting bad. my life + please save me = life goals. 
+
 notwithstanding, this is still ethical even though it takes lives by its direct use, just dont go to war with my country and no one dies - see makes it an ethical choice to not mess with me or my country.   (true but also a little lol) 
 
 we can deploy missles or other weapons right away, we can reduxe the time it takes dor it fo go fron TIC to "clear". (if EMP is used on our troops, this could be a small device that is encased,as such allows its use even after an EMP has occured, or other situations idk.)  it removes the big and little picture if requred and goes straight for the kill.
@@ -35,7 +37,11 @@ is this invention enough to save my life? it ensures we always know exactly were
 
 ----
 
-1 fly over - collecing beacon data and packet of friendly direction data (creates a segmented line in the HUD within relative space, so when they turn in, its visable, much like a steerpoint marker) an areow is placed alog that seg line infront of the beacons location in relative space; points to trop direction, not a percice location, from seg. line. this points to the side of the seg. line that our troops are positioned - fuck it.  since 3am. they havent stopped. the pain is im done. 
+1 fly over - collecing beacon data and packet of friendly direction data (creates a segmented line in the HUD within relative space, the troops will also see dedicated flairs or chaff or both dependint on env. or pilot or ground units choice -every segment thats being created on the MFDs waypoint thingy and on the HUD - each segment beginning - this ensures they are all on the same page when it comes down to it, much like a steerpoint marker) an areow is placed alog that seg. line infront of the beacons location in relative space; points to trop direction, not a percice location, from seg. line. this points to the side of the seg. line that our troops are positioned - 
+
+we can also have a progeam thst syn th for to be usd by rm tehy degs not boy squate tag the area with cludter bmbs so the whole square mod. thr funting of the cludter bmb. ehen fropprd by A-Ff over troopd. s cvrg area whole fully. 
+
+fuck it. since 3am. they havent stopped. the pain is im done. 
 
 2 fly over again - @ notch N, from 0 up to N-1 turn in. 
 
