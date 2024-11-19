@@ -1,3 +1,6 @@
+cant take a shower, and cant sleep. it will be your life so soon gundy and aptrick. its over. for all yall.  get zebra pinned. 
+
+
 each and every one of these people snitched on T through gossip or shit like did to me, each and wbery one of them told everything to eveyone and wtf oh ya, the guy who never talks to you all because uoiball are snitches, is somehow the one doing all these things, that patrick and gundy are doing to manipulate them. you all are so fucking dumb and its so fucking over for you idiots.  i wont be your scapegoat, and everyone will know if you evee go in, you are all gossiping snitches who commited hate crimes and wtf you think was foing to happen. you all were jeber going to get away with what your doing eight now. 
 
 fuck uou gundy. im wbout to zebra pin all yall. your all fucked so bad. fuck thay noise fhck thay stimului fuck yiu gundy. im seconds away from dragon fluffying you. heads ip. 
