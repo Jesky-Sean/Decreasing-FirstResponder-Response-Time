@@ -1,3 +1,5 @@
+if that lady down there had any fucking clue how badly patrick is playing them all, shed shoot him on site. honestly, gundy too, they put her here for this reason.  too bad everyone knows fundy.  your fucked. all of you are so fucked. 
+
 another fucking night gundy. your fucing hate group, another fucking night.  fucking zibra pins and fluffy dragons.  
 
 
