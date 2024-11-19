@@ -1,4 +1,4 @@
-each and every one of these people snitched on T through gossip or shit like me, each and wbery one of them told everything to eveyone and wtf oh ya, the guy who never talks to you all because uoiball are snitches, is somehow the one doing all these things, that patrick and gundy are doing to manipulate them. you all are so fucking dumb and its so fucking over for you idiots.  
+each and every one of these people snitched on T through gossip or shit like did to me, each and wbery one of them told everything to eveyone and wtf oh ya, the guy who never talks to you all because uoiball are snitches, is somehow the one doing all these things, that patrick and gundy are doing to manipulate them. you all are so fucking dumb and its so fucking over for you idiots.  
 
 now they switched to a super loud machine noise.  fuck this pain.  fuck you gundy. im going to zebra pin you all to the fluffly dragon bitch. 
 
