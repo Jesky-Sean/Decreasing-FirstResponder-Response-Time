@@ -1,4 +1,4 @@
-the same exaxt stimuli they put under rhe frjdge is now under the room when i teied to put on a ran to block it out. its neevr foing to end ever it it. its a duckingnnightmar 
+the same exaxt stimuli they put under rhe frjdge is now under the room when i teied to put on a ran to block it out. its neevr foing to end ever it it. its a duckingnnightmar sorry thay was boom boom next door. its all so much all the tome all the time you loose track of whats what and what and what. 
 
 
 im going to enjoy seeing you never return to your fuckint homeland. ill do everything i can to stop you from ever getting out of this country. fuck yiu and your fucking evil tatics. your fucking worthless lives and the things youve done to me oht of gossip and anger and fustrations of jow fucking pathetic you all are. 
