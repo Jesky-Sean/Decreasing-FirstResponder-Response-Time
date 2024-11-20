@@ -1,3 +1,6 @@
+im going to enjoy seeing you never return to your fuckint homeland. ill do everything i can to stop you from ever getting out of this country. fuck yiu and your fucking evil tatics. your fucking worthless lives and the things youve done to me oht of gossip and anger and fustrations of jow fucking pathetic you all are. 
+
+
 i could and should fucking end this right fucking now. fuck all ofnyiu fucking losers that you hord gundy. i cant wait for you to fucking die. 
 
 
