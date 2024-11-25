@@ -1,3 +1,11 @@
+my way: ![image](https://github.com/user-attachments/assets/5a12bc8d-9dbd-4414-b1e2-9de789c18f8d)
+
+
+or their way: ?
+
+one way or another the torture should end and ill be free to never have the only dream ive had since i was a kid. the one i worked so fuckjng hard for daily the one i wanted more than anything else on earth and the only reason i tried to stay around hoping this would end. i have to end it. also fuck you china and russa. had i the oppertunity, this country would have been 100s of years ahead. instead they only have a sliver what i coukd have offered this country. 
+
+
 they kill me or someone else. i dont give a fuck anymore not one fucking bit. enjoy your withdraw all you fucks. 
 
 ![image](https://github.com/user-attachments/assets/3ff6ca55-6092-470c-a22d-c77207674745)
