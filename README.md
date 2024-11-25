@@ -1,3 +1,15 @@
+they kill me or someone else. i dont give a fuck anymore not one fucking bit. 
+
+![image](https://github.com/user-attachments/assets/fdf3eefd-7922-4b3d-8270-36bf3b33bfe7)
+
+
+![image](https://github.com/user-attachments/assets/606e9899-0d35-42dd-88ff-c8eb04e49901)
+
+
+![image](https://github.com/user-attachments/assets/c0220b63-87c9-42dc-9c82-c712eba0f2c5)
+
+
+
 the same exaxt stimuli they put under rhe frjdge is now under the room when i teied to put on a ran to block it out. its neevr foing to end ever it it. its a duckingnnightmar sorry thay was boom boom next door. its all so much all the tome all the time you loose track of whats what and what and what. 
 
 
