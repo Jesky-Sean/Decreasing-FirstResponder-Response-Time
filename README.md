@@ -1,4 +1,5 @@
 my way: ![image](https://github.com/user-attachments/assets/5a12bc8d-9dbd-4414-b1e2-9de789c18f8d)
+apperently it will take 5 to 10 min. to bleed out and escape from torture and hate crimes. - i have to keep my body away from anyone and evryone for that amount of time. somehow. i have mo sanctuary, no place to go, no hope, no morale, no str. no will anymore. 
 
 
 or their way: ?
