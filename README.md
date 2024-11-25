@@ -1,4 +1,7 @@
-they kill me or someone else. i dont give a fuck anymore not one fucking bit. 
+they kill me or someone else. i dont give a fuck anymore not one fucking bit. enjoy your withdraw all you fucks. 
+
+![image](https://github.com/user-attachments/assets/3ff6ca55-6092-470c-a22d-c77207674745)
+
 
 ![image](https://github.com/user-attachments/assets/fdf3eefd-7922-4b3d-8270-36bf3b33bfe7)
 
