@@ -1,3 +1,6 @@
+you know what its loke to ever being able to use the bathroom or even pleasure yourself, or angthing because each and every moment they are hurting you and no matter what uou try it keeps getting worse and worse and worse. becomes hardee and harder to explain to anyone whats uappening in any meaningful way. im thinking of B&E for sanctuary, or something similar if this doesnt work and i wake up in a hospital. 
+
+
 im recording it as well so my dad can see it and be traumatized and know what its like and what ive been theough. im going to make him watch me die twice. fuck him. fuck no escapeing drom evil. 
 
 my way: ![image](https://github.com/user-attachments/assets/5a12bc8d-9dbd-4414-b1e2-9de789c18f8d)
