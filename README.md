@@ -1,5 +1,5 @@
 my way: ![image](https://github.com/user-attachments/assets/5a12bc8d-9dbd-4414-b1e2-9de789c18f8d)
-apperently it will take 5 to 10 min. to bleed out and escape from torture and hate crimes. - i have to keep my body away from anyone and evryone for that amount of time. somehow. i have mo sanctuary, no place to go, no hope, no morale, no str. no will anymore. 
+apperently it will take 5 to 10 min. to bleed out and escape from torture and hate crimes. - i have to keep my body away from anyone and evryone for that amount of time. somehow. i have mo sanctuary, no place to go, no hope, no morale, no str. no will anymore. a few hesatation marks as it is, but soon it wont matter, ill make it through this and over the other side or not. either way: whatever is after this is better than torture. its better than hate crimes on a daily basis and its way better than being alone for a single more day without anyone to talk to and listen to my painwithout yelling at me or wanting to hit me or threatn me. peace out and i onow why i habe to die to make the place better for the bad people. 
 
 
 or their way: ?
