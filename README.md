@@ -1,4 +1,4 @@
-doors unlocked as well. 
+doors unlocked as well. after. they took the sound of the F16 and used it.  im fucking done and ther. is nothing to fix this now. thats the last thing i could hear and feel hope snd now its been taken like everything else. fuck everyone. 
 
 i dont want my work going to saving lives anymore, i hope those are destroyed before anyone gets to them, fuck off world. good luck. im so happy that im ready to die, after this long of being tortured, and being finally ready. feels fucking fantastic.  
 
