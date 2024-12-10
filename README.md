@@ -1,3 +1,5 @@
+doors unlocked as well. 
+
 i dont want my work going to saving lives anymore, i hope those are destroyed before anyone gets to them, fuck off world. good luck. im so happy that im ready to die, after this long of being tortured, and being finally ready. feels fucking fantastic.  
 
 thanks for nothing world. enjoy your hate and anger. 
