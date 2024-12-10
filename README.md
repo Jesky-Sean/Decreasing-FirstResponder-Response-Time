@@ -1,3 +1,6 @@
+no one in this country, not once offerend me sanctuary. ehoever does goes everything. its really that simple. i dont want anythin else anymore. i dont want to live i dont want my work i dont want a relationshsip with anyone i dont want anything but my death and/or this to end (honestly even if it ends ill still probl killmyseld anyways.  so it hardly matters.) being 100% alone makes these decisions easier. 
+ 
+ 
  wants to shoot me or anyone else I’ll bbe standing at the windows staticly. good luck im ready to die so anint nothinny hut s thang. 
 
  
