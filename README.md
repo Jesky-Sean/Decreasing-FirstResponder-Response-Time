@@ -1,6 +1,6 @@
+ wants to shoot me or anyone else I’ll bbe standing at the windows staticly. good luck im ready to die so anint nothinny hut s thang. 
 
-
-
+ 
 stil planning it all out but it turns out slitting my throat wil cause pressure to drop so fast ill passnout quickly. innadditoj, ill also  e dead so that soog tood. one fast movement fuck othen world im done for long time hut koe im gryndien . how far do you have to be pushed to give up each and every dream youvr ever had in the hope of getting rest? ill show everyone so you dont have to guess. fuck you all and im glad my death is something you all seem to be onboard with. 
 
 
